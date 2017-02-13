@@ -29,3 +29,6 @@ This document tries to split up the different parts that are needed for successf
 
 - [http://www.heavydisc.com/](http://www.heavydisc.com/)
 - [ Grip it to Rip it: The Ins and Outs of Grip](https://www.discgolfreview.com/resources/articles/gripittoripit.shtml)
+- [Danny Lindahl](https://www.youtube.com/channel/UC2VGodlZLCRY1n3TAU3YQNw)
+- [GrizzlyGinger Disc Golf - an aspiring guy quite new to disc golf](https://www.youtube.com/channel/UC3ScPovPj934gfuhyv1zi8g)
+- [Disc Golf Strong](https://www.youtube.com/channel/UCGXC_YbchbZGwLSGDvegrrA)
