@@ -2,6 +2,7 @@
 
 This document tries to split up the different parts that are needed for successfull disc golfing: opening shots, timing, weight shifts, putting etc. Each part includes videos and other material I have found useful.
 
+All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unless specified otherwise.
 
 ## Throwing / opening shots
 
@@ -9,6 +10,8 @@ This document tries to split up the different parts that are needed for successf
 - during reachback, the hand should not curl behind your body 
 - during reachback, the disc should be a bit away from your body
 - plant foot should be approximately 90 degrees towards the direction your are throwing
+- both feet should not be on the same imaginary line that is pointing where you are about to throw
+  -instead, the plant foot should be approximately one foot's length offset to your left foot
 
 ### Holding the disc
 
