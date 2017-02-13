@@ -7,6 +7,7 @@ This document tries to split up the different parts that are needed for successf
 
 ### Timing
 
+- [Danny Lindahl - How to correctly time a disc golf throw](https://www.youtube.com/watch?v=A2_OVPhLg0A)
 
 ### Weight shift
 
@@ -21,7 +22,7 @@ This document tries to split up the different parts that are needed for successf
 [Disc Golf putting clinic by David Feldberg (2011)] (https://www.youtube.com/watch?v=N_7RPOmSSsU)
 
 
-
+## Physics training
 
 
 ## References, uncategorized and other useful links
