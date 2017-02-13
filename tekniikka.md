@@ -26,5 +26,5 @@ This document tries to split up the different parts that are needed for successf
 
 ## References, uncategorized and other useful links
 
-[http://www.heavydisc.com/](http://www.heavydisc.com/)
-[ Grip it to Rip it: The Ins and Outs of Grip](https://www.discgolfreview.com/resources/articles/gripittoripit.shtml)
+- [http://www.heavydisc.com/](http://www.heavydisc.com/)
+- [ Grip it to Rip it: The Ins and Outs of Grip](https://www.discgolfreview.com/resources/articles/gripittoripit.shtml)
