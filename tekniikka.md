@@ -1,22 +1,30 @@
-# Tekniikka
+# Technique
 
-Tämä dokumentti pilkkoo heittotekniikan pienempiin osiin. Esimerkiksi ajoitus, painon siirto jne. Jokainen osa kuvataan sopivasti ja jokaiseen osaan liitetään hyviksi todettuja video- ja tekstimateriaalia, jotka on poimittu internetistä.
-
-## Heittäminen / avaus
-
-### Ajoitus
+This document tries to split up the different parts that are needed for successfull disc golfing: opening shots, timing, weight shifts, putting etc. Each part includes videos and other material I have found useful.
 
 
-### Painon siirto 
+## Throwing / opening shots
+
+### Timing
+
+
+### Weight shift
 
 
 
-## Puttaus
+## Putting
 
 ### Push putt
+
+[David Feldberg Putting Clinic @ NZDG Nationals, February 2015](https://www.youtube.com/watch?v=-wrjOOzXQ1Y&feature=youtu.be)
 
 [Disc Golf putting clinic by David Feldberg (2011)] (https://www.youtube.com/watch?v=N_7RPOmSSsU)
 
 
-[David Feldberg Putting Clinic @ NZDG Nationals, February 2015](https://www.youtube.com/watch?v=-wrjOOzXQ1Y&feature=youtu.be)
 
+
+
+## References, uncategorized and other useful links
+
+[http://www.heavydisc.com/](http://www.heavydisc.com/)
+[ Grip it to Rip it: The Ins and Outs of Grip](https://www.discgolfreview.com/resources/articles/gripittoripit.shtml)
