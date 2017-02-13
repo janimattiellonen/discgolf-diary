@@ -12,7 +12,7 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 - during reachback, the disc should be a bit away from your body
 - plant foot should be approximately 90 degrees towards the direction your are throwing
 - both feet should not be on the same imaginary line that is pointing where you are about to throw
-  -instead, the plant foot should be approximately one foot's length offset to your left foot
+  - instead, the plant foot should be approximately one foot's length offset to your left foot
 
 ### Holding the disc
 
