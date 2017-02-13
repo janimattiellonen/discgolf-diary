@@ -13,7 +13,7 @@ This document tries to split up the different parts that are needed for successf
 ### Holding the disc
 
 - correct holding position: thumb should point forwards, not up
-  - e
+  - tilt your hand slightly down
 
 
 ### Timing
