@@ -1,4 +1,11 @@
-# frisbeegolf paivakirja 2017
+# Frisbeegolf paivakirja 2017
+
+Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
+
+- ajoituksen sekä painon siirtymän (weigh shifting) kehittäminen
+- tarkkuus avauksissa ja lähestymisissä
+- panostusta puttaamiseen
+- fysiikan kehittäminen
 
 ## Maanantai 13.2.2017
 
