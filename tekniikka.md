@@ -6,7 +6,7 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 
 ## Throwing / opening shots
 
-- spine should be straight
+- spine should be straight during reachback (not bent left or right)
 - during reachback, the hand should not curl behind your body 
 - during reachback, the disc should be a bit away from your body
 - plant foot should be approximately 90 degrees towards the direction your are throwing
@@ -20,6 +20,8 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 
 
 ### Timing
+
+- you should gain full reachback at exactly the same time when your plant foot is planted on the ground
 
 - [How to correctly time a disc golf throw (Danny Lindahl)](https://www.youtube.com/watch?v=A2_OVPhLg0A)
 
