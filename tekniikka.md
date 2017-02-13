@@ -5,6 +5,11 @@ This document tries to split up the different parts that are needed for successf
 
 ## Throwing / opening shots
 
+- spine should be straight
+- during reachback, the hand should not curl behind your body 
+- during reachback, the disc should be a bit away from your body
+- plant foot should be approximately 90 degrees towards the direction your are throwing
+
 ### Timing
 
 - [How to correctly time a disc golf throw (Danny Lindahl)](https://www.youtube.com/watch?v=A2_OVPhLg0A)
