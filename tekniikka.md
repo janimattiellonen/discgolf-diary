@@ -7,7 +7,7 @@ This document tries to split up the different parts that are needed for successf
 
 ### Timing
 
-- [Danny Lindahl - How to correctly time a disc golf throw](https://www.youtube.com/watch?v=A2_OVPhLg0A)
+- [How to correctly time a disc golf throw (Danny Lindahl)](https://www.youtube.com/watch?v=A2_OVPhLg0A)
 
 ### Weight shift
 
