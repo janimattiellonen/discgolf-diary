@@ -42,7 +42,13 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 ## Physics training
 
 
-## References, uncategorized and other useful links
+## Uncategorized thoughts on training routines
+
+- always have a plan when before goign for field work
+- focus on one or two things during field work
+- when practising putting, try to putt 5 times starting from 3m, then from 6m and so on, always increasing the distance when you score at least 3-4 out of 5 throws. Ifyou miss too many, go back one step. Rinse and repeat
+
+## References, uncategorized links and other useful links
 
 - [http://www.heavydisc.com/](http://www.heavydisc.com/)
 - [ Grip it to Rip it: The Ins and Outs of Grip](https://www.discgolfreview.com/resources/articles/gripittoripit.shtml)
