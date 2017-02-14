@@ -38,6 +38,10 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 
 ### Weight shift
 
+0) legs
+0) hips
+0) shoulders
+0) arms
 
 
 ## Putting
