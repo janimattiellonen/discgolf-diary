@@ -24,3 +24,8 @@ Tänään jatkettiin about samoilla harjoituksilla kuin eilenkin, eli pääasias
 Paikka: Tali
 
 Kesto: 1h
+
+
+## Keskiviikko 15.2.2017
+
+Tulevan päivän ohjelma: ajoitus ja kiihtyvyys oikealle hetkellä. Rentous heiton alussa aina kiihdytyksen aloittamiseen asti.
