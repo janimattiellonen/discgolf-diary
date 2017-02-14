@@ -13,11 +13,12 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 - plant foot should be approximately 90 degrees towards the direction your are throwing
 - both feet should not be on the same imaginary line that is pointing where you are about to throw
   - instead, the plant foot should be approximately one foot's length offset to your left foot
+- your free arm should stay as close to your body as possibly
 
 ### Holding the disc
 
 - correct holding position: thumb should point forwards, not up
-  - tilt your hand slightly down
+  - tilt your wrist slightly down
 
 
 ### Timing
