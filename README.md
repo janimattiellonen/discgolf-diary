@@ -38,3 +38,7 @@ Tulevan päivän ohjelma: ajoitus ja kiihtyvyys oikealle hetkellä. Rentous heit
   - plant footin pitäisi olla jalan verran ylempänä
 - kääntyykö lantio liian aikaisin?
   - pitäisi kääntyä vasta sitten kun reachback alkaa
+- painon siirtymistä
+  - miten itselläni toimii?
+- mieti avatessasi, että kääntyykö lantiosi ollenkaan?
+  - pitäisi kääntyä
