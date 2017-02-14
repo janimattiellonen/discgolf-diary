@@ -29,3 +29,12 @@ Kesto: 1h
 ## Keskiviikko 15.2.2017
 
 Tulevan päivän ohjelma: ajoitus ja kiihtyvyys oikealle hetkellä. Rentous heiton alussa aina kiihdytyksen aloittamiseen asti.
+
+
+
+## Myöhempiä harjoituksia varten
+
+- pysyvätkö jalat aina samalla linjalla koko heiton aikana?
+  - plant footin pitäisi olla jalan verran ylempänä
+- kääntyykö lantio liian aikaisin?
+  - pitäisi kääntyä vasta sitten kun reachback alkaa
