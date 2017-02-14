@@ -18,7 +18,11 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 ### Slow-motion videos
 
 - [Lead Card Driving Jones East Disc Golf](https://www.youtube.com/watch?v=MgiloO9FH_8)
+  - Paul McBeth, Will Schusterick, 2 more
+  
 - [ Lead card driving at EO2013](https://youtu.be/GfjiaZ9DvXQ)
+  - Paul McBeth, Will Schusterick, Jeremy Koling, Dave Feldberg
+
 
 ### Holding the disc
 
