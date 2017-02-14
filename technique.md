@@ -15,6 +15,11 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
   - instead, the plant foot should be approximately one foot's length offset to your left foot
 - your free arm should stay as close to your body as possibly
 
+### Slow-motion videos
+
+- [Lead Card Driving Jones East Disc Golf](https://www.youtube.com/watch?v=MgiloO9FH_8)
+- [ Lead card driving at EO2013](https://youtu.be/GfjiaZ9DvXQ)
+
 ### Holding the disc
 
 - correct holding position: thumb should point forwards, not up
