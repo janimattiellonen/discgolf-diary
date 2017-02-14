@@ -16,3 +16,11 @@ Kokeiltu myös uutta kiekkoa: Prodigy M3 300s -midrange-kiekkoa (2 kpl hankittu)
 Paikka: Tali
 
 Kesto: 1h
+
+## Tiistai 14.2.2017
+
+Tänään jatkettiin about samoilla harjoituksilla kuin eilenkin, eli pääasiassa avausharjoittelua. Edelleen yritin pitää painopistettä ajastuksen kanssa, mutta myös ranteen asennon ja kiihtyvyyden ajoittamisen kanssa. Puttailua hieman; ei kauhean hyvä fiilis puttauksessa. Avauksetkin tuntuu lähtevän ilman koko kropan voimia.
+
+Paikka: Tali
+
+Kesto: 1h
