@@ -42,3 +42,5 @@ Tulevan päivän ohjelma: ajoitus ja kiihtyvyys oikealle hetkellä. Rentous heit
   - miten itselläni toimii?
 - mieti avatessasi, että kääntyykö lantiosi ollenkaan?
   - pitäisi kääntyä
+- pysyykö vapaa käsi lähellä kroppaa heittäessä?
+  - pitäisi pysyä
