@@ -55,6 +55,7 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 
 ## Physics training
 
+- [Stronger Legs for Disc Golf? Start with the Squat](https://www.youtube.com/watch?v=EBDh52zsnMk)
 
 ## Field work / training routines
 
