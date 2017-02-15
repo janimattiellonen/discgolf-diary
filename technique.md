@@ -76,4 +76,4 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 ## Requires further investigation
 
 - [Golf swing || Dave Feldberg Disc Golf Clinic Biomechanics](https://www.youtube.com/watch?v=7e6B_r90d0c)
-  - hip movement to allow for straight line shot, starts at14:44
+  - hip movement to allow for straight line shot, starts at 14:44
