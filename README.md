@@ -36,6 +36,7 @@ Paikka: Tali
 
 Kesto: 1h
 
+Jalkakyykkyjä: 3 x 15
 
 
 
