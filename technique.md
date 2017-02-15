@@ -71,3 +71,8 @@ All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unle
 - [Danny Lindahl](https://www.youtube.com/channel/UC2VGodlZLCRY1n3TAU3YQNw)
 - [GrizzlyGinger Disc Golf - an aspiring guy quite new to disc golf](https://www.youtube.com/channel/UC3ScPovPj934gfuhyv1zi8g)
 - [Disc Golf Strong](https://www.youtube.com/channel/UCGXC_YbchbZGwLSGDvegrrA)
+
+
+## Requires further investigation
+
+- [Golf swing || Dave Feldberg Disc Golf Clinic Biomechanics](https://www.youtube.com/watch?v=7e6B_r90d0c)
