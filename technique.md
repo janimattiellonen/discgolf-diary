@@ -4,6 +4,8 @@ This document tries to split up the different parts that are needed for successf
 
 All throws mentioned in this article are RHBH (Right Hand BackHand) throws, unless specified otherwise.
 
+Also do note that these are my personal notes, which I update periodically. Some information may be wrong, but constitutes my current beliefs in what makes a good throw.
+
 ## Throwing / opening shots
 
 - spine should be straight during reachback (not bent left or right)
