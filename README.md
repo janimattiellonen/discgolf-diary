@@ -44,3 +44,4 @@ Tulevan päivän ohjelma: ajoitus ja kiihtyvyys oikealle hetkellä. Rentous heit
   - pitäisi kääntyä
 - pysyykö vapaa käsi lähellä kroppaa heittäessä?
   - pitäisi pysyä
+- x-step vauhdinoton aikana tutki miltä tuntuu jos paino onkin enemmän varpailla, poislukien viimeinen askel (plan foot)
