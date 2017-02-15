@@ -28,7 +28,15 @@ Kesto: 1h
 
 ## Keskiviikko 15.2.2017
 
-Tulevan päivän ohjelma: ajoitus ja kiihtyvyys oikealle hetkellä. Rentous heiton alussa aina kiihdytyksen aloittamiseen asti.
+Tänään puttaus tuntui ajoittain toimivan ihan hyvin. Ote tuntui hyvältä kun käytin enemmänkin omaa tyyliä, enkä esim. Dave Feldbergin esittämää otetta. Avauksien aikana yritin miettiä käden sijaintia taaksevedon aikana (ulkona kropasta).
+
+Kierroksen aikana tosin unohdin usein kaikki asiat, johin piti keskittyä.
+
+Paikka: Tali
+
+Kesto: 1h
+
+
 
 
 
