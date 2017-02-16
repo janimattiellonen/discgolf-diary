@@ -48,6 +48,10 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 
 ### Weight shift
 
+- [Haeavy Disc](https://youtu.be/fD4u5_wbDec?t=50) mentions that during weight shift, your hip should be shifted towards the [sky](https://vimeo.com/64171158)
+
+#### Order of movement
+
 0. legs
 0. hips
 0. shoulders
