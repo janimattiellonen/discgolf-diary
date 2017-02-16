@@ -20,7 +20,7 @@ Also do note that these are my personal notes, which I update periodically. Some
 
 ### Footwork during throw
 
-It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https://youtu.be/wE2qWnVaqK0?t=83) step on their toes during the throw, rather than planting the whole foot down on the ground. [Danny Lindahl](https://youtu.be/A2_OVPhLg0A?t=413) mentions that the only time when your weight should be on the heels of your foo is during followthrough or your plant foot.
+It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https://youtu.be/wE2qWnVaqK0?t=83) often step on their toes during the throw, rather than planting the whole foot down on the ground. [Danny Lindahl](https://youtu.be/A2_OVPhLg0A?t=413) mentions that the only time when your weight should be on the heels of your foo is during followthrough or your plant foot.
 
 ### Slow-motion videos
 
