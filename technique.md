@@ -23,6 +23,7 @@ Also do note that these are my personal notes, which I update periodically. Some
   - Lizotte, Piippo, Stoor, Nissinen, McBeth, Wysocki etc
 - [Lead Card Driving Jones East Disc Golf](https://www.youtube.com/watch?v=MgiloO9FH_8)
   - Paul McBeth, Will Schusterick, 2 more
+- [ Will Schusterick Slow Motion- Multi Angle](https://www.youtube.com/watch?v=rR6yuA2P5mQ)
 - [Lead card driving at EO2013](https://youtu.be/GfjiaZ9DvXQ)
   - Paul McBeth, Will Schusterick, Jeremy Koling, Dave Feldberg
 - [An "In-Depth" Video Analysis - Will Schusterick](https://www.youtube.com/watch?v=wE2qWnVaqK0&feature=youtu.be)
