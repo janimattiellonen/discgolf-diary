@@ -19,6 +19,8 @@ Also do note that these are my personal notes, which I update periodically. Some
 
 ### Slow-motion videos
 
+- [European Open 2016 - DGWT (Slo-mo drives) ](https://www.youtube.com/playlist?list=PLeStNimppl-cvXgDW4wVZDYZodDpjozDw)
+  - Lizotte, Piippo, Stoor, Nissinen, McBeth, Wysocki etc
 - [Lead Card Driving Jones East Disc Golf](https://www.youtube.com/watch?v=MgiloO9FH_8)
   - Paul McBeth, Will Schusterick, 2 more
 - [Lead card driving at EO2013](https://youtu.be/GfjiaZ9DvXQ)
