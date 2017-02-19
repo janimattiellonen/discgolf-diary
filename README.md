@@ -39,6 +39,17 @@ Kesto: 1h
 Jalkakyykkyjä: 3 x 15
 
 
+## Sunnuntai 19.2.2017
+
+Pääosin puttausharjoittelua sekä kisa (mukana kisassa ensimmäistä kertaa) tuloksella 41. Kisassa puttailtiin eri etäisyyksiltä kaksi kierrosta (5m, 7m, 9m, 11m ja 13m + 3 + 3 avausta rystyllä ja forella). Sain koritettua ainakin kerran jokaiselta etäisyydeltä. Harmi kyllä 5m kohdalla en saanut kummallakaan kierroksella kaikkia koriin.
+
+Avausharjoittelun aikana tein uuden nopeusennätyksen tutkaan (93km/h). Viime kerralla, kolmisen viikkoa sitten) sain tutkaan 91km/h.
+
+Ihan hyvät fiilikset jäi puttailusta. 
+
+Paikka: Kannusillanmäki
+
+Kesto: 2h
 
 
 ## Myöhempiä harjoituksia varten
