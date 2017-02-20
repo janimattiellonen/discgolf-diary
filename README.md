@@ -52,6 +52,12 @@ Paikka: Kannusillanmäki
 Kesto: 2h
 
 
+## Maanantai 20.2.2017
+
+Kävin Talissa, mutta siellä oli aivan liian jäistä. Avasin 10 kiekkoa kerran ja lähdin pois.
+
+Sen sijaan kävin työpaikan salilla (40min).
+
 ## Myöhempiä harjoituksia varten
 
 - pysyvätkö jalat aina samalla linjalla koko heiton aikana?
