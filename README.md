@@ -58,6 +58,17 @@ Kävin Talissa, mutta siellä oli aivan liian jäistä. Avasin 10 kiekkoa kerran
 
 Sen sijaan kävin työpaikan salilla (40min).
 
+
+## Tiistai 21.2.2017
+
+Tänään Talissa lumi oli peittänyt jään, joten puttaus tuntui järjelliseltä. Avauksiakin pystyi tekemään tietyistä kohdista. Avaustekniikka oli tänään täysin hakusessa. Avausta tehdessä tulee tietynlainen mentaali blokki ja liike jähmettyy täysin. En saanut liikehdintään haluamaani rentoutta tai sulavuutta. Pitää jatkossa kyllä testailla kotona, että saisiko liikkeeseen sulavuutta.
+
+Puttaillessa tuntui ajoittain taas kerran, että jotain toimii.
+
+Paikka: Tali
+
+Kesto: 1h
+
 ## Myöhempiä harjoituksia varten
 
 - pysyvätkö jalat aina samalla linjalla koko heiton aikana?
