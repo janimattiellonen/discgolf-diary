@@ -65,12 +65,16 @@ Tänään Talissa lumi oli peittänyt jään, joten puttaus tuntui järjelliselt
 
 Puttaillessa tuntui ajoittain taas kerran, että jotain toimii.
 
+Illemmalla tuli mietittyä sitä, että about sillä hetkellä, kuin aloitan kiskaisun, niin takimmainen jalka ei tee juuri mitään. En ponnista sillä ollenkaan. 
+
 Paikka: Tali
 
 Kesto: 1h
 
 ## Myöhempiä harjoituksia varten
 
+- seuraava kokeilu (!!):
+  - stand still stancesta avauksia siten, että takimmainen jalka ponnistaa samalla kun aloitan kiihdytyksen (ajoitusta pitää testata)
 - pysyvätkö jalat aina samalla linjalla koko heiton aikana?
   - plant footin pitäisi olla jalan verran ylempänä
 - koko kropan ei tulisi kääntyä samaan aikaan
