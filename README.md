@@ -73,8 +73,9 @@ Kesto: 1h
 
 - pysyvätkö jalat aina samalla linjalla koko heiton aikana?
   - plant footin pitäisi olla jalan verran ylempänä
-- kääntyykö lantio liian aikaisin?
-  - pitäisi kääntyä vasta sitten kun reachback alkaa
+- koko kropan ei tulisi kääntyä samaan aikaan
+  - turning vs twisting
+  - lantio kääntyy -> pieni viive (lag), sitten olkapäät ja käsi
 - painon siirtymistä
   - miten itselläni toimii?
 - mieti avatessasi, että kääntyykö lantiosi ollenkaan?
