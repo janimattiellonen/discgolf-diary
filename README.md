@@ -75,6 +75,7 @@ Kesto: 1h
 
 - seuraava kokeilu (!!):
   - stand still stancesta avauksia siten, että takimmainen jalka ponnistaa samalla kun aloitan kiihdytyksen (ajoitusta pitää testata)
+- katsottuani muutamia videoita, näyttää siltä, että pro-pelaajien lantiot eivät käänny yhtä paljon kuin esim hartiat (tässäkö se twist on, eikä turn. Eli lantio ja olkapäät kääntyvät eri paljon). 
 - pysyvätkö jalat aina samalla linjalla koko heiton aikana?
   - plant footin pitäisi olla jalan verran ylempänä
 - koko kropan ei tulisi kääntyä samaan aikaan
