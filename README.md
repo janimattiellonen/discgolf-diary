@@ -71,6 +71,14 @@ Paikka: Tali
 
 Kesto: 1h
 
+## Keskiviikko 22.2.2017
+
+Enimmäkseen taas avauksia ja puttailua. Yritin kiinnittää huomiota siihen, käytänkö takajalkaa yhtään voiman saantiin. Huomasin sen, että on vaikeaa ajoittaa ja hyödyntää takajalkaa.
+
+Paikka: Tali
+
+Kesto: 1h
+
 ## Myöhempiä harjoituksia varten
 
 - seuraava kokeilu (!!):
