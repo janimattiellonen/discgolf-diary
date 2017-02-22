@@ -1,4 +1,4 @@
-# Frisbeegolf paivakirja 2017
+# Frisbeegolf päiväkirja 2017
 
 Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 
