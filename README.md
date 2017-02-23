@@ -79,6 +79,14 @@ Paikka: Tali
 
 Kesto: 1h
 
+## Torstai 23.2.2017
+
+Tänään perinteiseen tyyliin puttaus- ja avausharjoittelua. Lisäksi 1 kierros tuloksella 75 (+17). Kierroksella muutamaan kohtaan ihan ok suorituksia. Pelasin aika paljon putterilla ja M3-midarilla. Aviaattori-kiekko sai pahan osuman ja kävin ostamassa 2 vastaavaa, uutta P1X-kiekkoa Pointista.
+
+Paikka: Tali
+
+Kesto: 2h
+
 ## Myöhempiä harjoituksia varten
 
 - seuraava kokeilu (!!):
