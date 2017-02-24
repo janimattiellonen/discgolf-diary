@@ -16,7 +16,7 @@ Also do note that these are my personal notes, which I update periodically. Some
 - both feet should not be on the same imaginary line that is pointing where you are about to throw
   - instead, the plant foot should be approximately one foot's length offset to your left foot
 - your free arm should stay as close to your body as possibly
-
+  - the more compact you are, the faster you spin (think figure skaters when they spin; they keep their arms really close to their bodies)
 
 ### Footwork during throw
 
@@ -86,7 +86,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 - [Danny Lindahl](https://www.youtube.com/channel/UC2VGodlZLCRY1n3TAU3YQNw)
 - [GrizzlyGinger Disc Golf - an aspiring guy quite new to disc golf](https://www.youtube.com/channel/UC3ScPovPj934gfuhyv1zi8g)
 - [Disc Golf Strong](https://www.youtube.com/channel/UCGXC_YbchbZGwLSGDvegrrA)
-
+- [Simon lizotte Eagle McMahon Clinic tips and tricks](https://youtu.be/qOOjIZ1_w8Q)
 
 ## Requires further investigation
 
