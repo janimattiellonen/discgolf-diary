@@ -87,6 +87,17 @@ Paikka: Tali
 
 Kesto: 2h
 
+## Maanantai 27.2.2017
+
+Paikka: Tali
+
+Kesto: 1h 35min
+
+Pääosin taas puttaus- ja avausharjoittelua. Tänään laitoin hieman painoarvoa sille, missä kohtaa plant foot on suhteessa toiseen jalkaan, sekä siihen, että olisi vähän leveämpi haara-asento. Leveämpi haara-asento tuotti ainakin aluksi hyvin paljon epätarkkuutta. Huomasin myös, että katseeni tuppaa olemaan heittosuuntaan liian aikaisin. Yritin korjata tätä katsomalla toiseen suuntaan heti vedon alusta. Olin myös huomaavani, että jos puristin hieman kovempaa, niin heitolle tuli hieman enemmän pituutta.
+
+Loppukaneetti: kannattaa edelleen jatkaa stand still stancella sekä keskittyä puritusotteeseen, plant footin sijantiin, haara-asennon leveyteen ja siihen, minne katsoo kun aloittaa heittämisen.
+
+
 ## Myöhempiä harjoituksia varten
 
 - kokeili leveämpää haara-asentoa kun plant foot asettuu maahan juuri ennen heiton lähtöä
