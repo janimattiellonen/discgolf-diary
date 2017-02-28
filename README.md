@@ -97,6 +97,14 @@ Pääosin taas puttaus- ja avausharjoittelua. Tänään laitoin hieman painoarvo
 
 Loppukaneetti: kannattaa edelleen jatkaa stand still stancella sekä keskittyä puritusotteeseen, plant footin sijantiin, haara-asennon leveyteen ja siihen, minne katsoo kun aloittaa heittämisen.
 
+## Tiistai 28.2.2017
+
+Paikka: Tali
+
+Kesto: 55min
+
+Pääosin taas puttaus- ja avausharjoittelua. Tänään Talissa oli pieni kettu, joka oli hyvin utelias, joka juoksi kiekkojen perään ja lopulta pölli yhden kiekon minulta.
+
 
 ## Myöhempiä harjoituksia varten
 
