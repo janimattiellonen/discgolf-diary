@@ -105,6 +105,13 @@ Kesto: 55min
 
 Pääosin taas puttaus- ja avausharjoittelua. Tänään Talissa oli pieni kettu, joka oli hyvin utelias, joka juoksi kiekkojen perään ja lopulta pölli yhden kiekon minulta.
 
+## Keskiviikko 1.3.2017
+
+Paikka: tali
+
+Kesto: 1h
+
+Ei mitään suurempia edistyksiä. Pääosin huonoa puttailua ja muutama ok avaus.
 
 ## Myöhempiä harjoituksia varten
 
