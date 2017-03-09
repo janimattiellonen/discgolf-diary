@@ -115,7 +115,10 @@ Ei mitään suurempia edistyksiä. Pääosin huonoa puttailua ja muutama ok avau
 
 ## Myöhempiä harjoituksia varten
 
-- kokeili leveämpää haara-asentoa kun plant foot asettuu maahan juuri ennen heiton lähtöä
+- SEURAAVAN KERRAN
+  - https://www.youtube.com/watch?v=uKFBjR7V2DU&t
+
+- kokeile leveämpää haara-asentoa kun plant foot asettuu maahan juuri ennen heiton lähtöä
 - stand still stancesta avauksia siten, että takimmainen jalka ponnistaa samalla kun aloitan kiihdytyksen (ajoitusta pitää testata)
 - katsottuani muutamia videoita, näyttää siltä, että pro-pelaajien lantiot eivät käänny yhtä paljon kuin esim hartiat (tässäkö se twist on, eikä turn. Eli lantio ja olkapäät kääntyvät eri paljon). 
 - pysyvätkö jalat aina samalla linjalla koko heiton aikana?
