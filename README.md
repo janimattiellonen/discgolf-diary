@@ -119,7 +119,7 @@ Ei mitään suurempia edistyksiä. Pääosin huonoa puttailua ja muutama ok avau
 
 Paikka: Tali
 
-Kesto: 2h
+Kesto: 2h 30min
 
 Tänään oli tiedossa pienimuotoinen kisa Tanen ja yhden muun kanssa. Tarkoituksena olisi pitää samanlainen kisa joka maanantai aina syksyyn asti. 
 
