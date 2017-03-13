@@ -115,6 +115,17 @@ Ei mitään suurempia edistyksiä. Pääosin huonoa puttailua ja muutama ok avau
 
 ## Myöhempiä harjoituksia varten
 
+13.3.2017
+
+Paikka: Tali
+
+Kesto: 2h
+
+Tänään oli tiedossa pienimuotoinen kisa Tanen ja yhden muun kanssa. Tarkoituksena olisi pitää samanlainen kisa joka maanantai aina syksyyn asti. 
+
+Tänään taas perinteisesti hieman puttaus- ja avausharjoittelua. Sen jälkeen täysi kierros. Aloitimme väylältä 12, koska oli vielä hieman hämärää. Aloitin hienosti pirkottamalla 12. väylän ensimmäistä kertaa koskaan. Seuraavan väylän avaus oli taas paras koskaan. Tänään peli kulki päöäosin hyvin, poislukien väylät 1 ja 18, joilta sain +5 ja +3. Lopputulos 67 (+9).
+
+
 - SEURAAVAN KERRAN
   - https://www.youtube.com/watch?v=uKFBjR7V2DU&t
 
