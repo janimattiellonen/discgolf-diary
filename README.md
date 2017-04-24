@@ -126,6 +126,31 @@ Tänään oli tiedossa pienimuotoinen kisa Tanen ja yhden muun kanssa. Tarkoituk
 Tänään taas perinteisesti hieman puttaus- ja avausharjoittelua. Sen jälkeen täysi kierros. Aloitimme väylältä 12, koska oli vielä hieman hämärää. Aloitin hienosti pirkottamalla 12. väylän ensimmäistä kertaa koskaan. Seuraavan väylän avaus oli taas paras koskaan. Tänään peli kulki päöäosin hyvin, poislukien väylät 1 ja 18, joilta sain +5 ja +3. Lopputulos 67 (+9).
 
 
+24.4.2017
+
+Paikka: Tali
+
+Kesto: 1h 30min
+
+Pitkästä aikaa entry päiväkirjaan. Olen kyllä käynyt jokusen kerran heittelemässä, mutta en ole jaksanut kirjata mitään tänne. Enimmäkseen kierroksilla käynyt. Ehkä siksi.
+
+Aiemmin tuli loukattua nivus taas kerran, joten olen Heltti-käynnin jälkeen alkanut taas lämmittelemään ennen kierrosta.
+
+Tämän aamun kierros oli yksi parhaista Talissa koskaan. Erittäin tasainen kierros. Lopputulos 59 (+1). 3 pirkkoa, 2 bogia ja yksi tupla-bogi. Huomionarvoista se, että ensimmäinen bogi (tupla) tuli vasta väylällä 8, jonka jälkeen olin tilanteessa +0 (!!). 
+
+Vaikka tänään tulikin tehtyä muutamia huonoja avauksia ja heittoja niin sain pääosin korjattua ne väylän aikana. Veikkaan, että ennen kierrosta tehdyt muutamat puttailut saattoivat hieman parantaa puttausprosenttia kierroksen aikana.
+
+Ennen 16. väylää olin tilanteessa +1. 16. väylällä sain pirkon, joten taas tilanteessa 0. Mukavana asiana pidän myös sitä, että sain par-tuloksen väylillä 13 ja 14, jotka yleensä tuottavat hieman ongelmia (lue: +1 tai +2). Väylä 17 sujui myös hyvin, vaikka vähän jännitti, pääsenkö saarelle 3. heitolla. Pääsin ja sain lopulta par 4 -tuloksen.
+
+Viimeisellä väylällä jännitys mahdollisesta -1 tai 0 -tuloksesta kostautui. Ensimmäinen avaus ajautui selvästi vasemmalle ja OB:lle. Toinen heitto jäi ujoksi ja lopputuloksena +1 ja korttiin tulos 59 (+1). 
+
+Jäi silti erittäin hyvä fiilis kierroksesta. Nyt minulla on 3 +1 -tulosta Talista, joista 2 uudemmalla 10+11 -leiskalla. Tästä on hyvä jatkaa kevättä ja kesää. Negatiivinen tulos häämöttää jo horisontissa, jos sama pelivire jatkuu. 
+
+Mainittakoot, että edellisellä kierroksella tuli jopa 5 pirkkoa (oma henkilökohtainen ennätys Talissa) mutta vastaavasti sen verran paljon bogeja ja tuplabogeja, että tulos jäi +6:een tuolloin.
+
+
+
+
 - SEURAAVAN KERRAN
   - https://www.youtube.com/watch?v=uKFBjR7V2DU&t
 
@@ -144,3 +169,4 @@ Tänään taas perinteisesti hieman puttaus- ja avausharjoittelua. Sen jälkeen 
 - pysyykö vapaa käsi lähellä kroppaa heittäessä?
   - pitäisi pysyä
 - x-step vauhdinoton aikana tutki miltä tuntuu jos paino onkin enemmän varpailla, poislukien viimeinen askel (plan foot)
+
