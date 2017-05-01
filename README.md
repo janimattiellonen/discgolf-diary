@@ -113,8 +113,6 @@ Kesto: 1h
 
 Ei mitään suurempia edistyksiä. Pääosin huonoa puttailua ja muutama ok avaus.
 
-## Myöhempiä harjoituksia varten
-
 13.3.2017
 
 Paikka: Tali
@@ -126,7 +124,7 @@ Tänään oli tiedossa pienimuotoinen kisa Tanen ja yhden muun kanssa. Tarkoituk
 Tänään taas perinteisesti hieman puttaus- ja avausharjoittelua. Sen jälkeen täysi kierros. Aloitimme väylältä 12, koska oli vielä hieman hämärää. Aloitin hienosti pirkottamalla 12. väylän ensimmäistä kertaa koskaan. Seuraavan väylän avaus oli taas paras koskaan. Tänään peli kulki päöäosin hyvin, poislukien väylät 1 ja 18, joilta sain +5 ja +3. Lopputulos 67 (+9).
 
 
-24.4.2017
+## 24.4.2017
 
 Paikka: Tali
 
@@ -149,7 +147,7 @@ Jäi silti erittäin hyvä fiilis kierroksesta. Nyt minulla on 3 +1 -tulosta Tal
 Mainittakoot, että edellisellä kierroksella tuli jopa 5 pirkkoa (oma henkilökohtainen ennätys Talissa) mutta vastaavasti sen verran paljon bogeja ja tuplabogeja, että tulos jäi +6:een tuolloin.
 
 
-
+## Myöhempiä harjoituksia varten
 
 - SEURAAVAN KERRAN
   - https://www.youtube.com/watch?v=uKFBjR7V2DU&t
