@@ -7,6 +7,19 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+
+## 2.5.2017
+
+Paikka: Tali
+
+Kesto: 1h 45min + 30 min puttaus- ja avaus-harjoittelua.
+
+Aloitin aamun puttailulla. Sen jälkeen siirryin 14. väylälle ja harjoittelin tovin avauksia annukkana. 
+
+Kauden huonoin kierros tuloksellisesti, 74 (+16). Ei paljon hyvää sanottavaa. Todella monta tupla-bogia. Väylillä 4-8 pelkkiä bogeja (joista yksi tupla-bogi). Väylät 10-18 pelasin Tanen kanssa, joka liittyi seuraan.
+
+Pitää muistaa, että tämä oli vain yksi huono aamu. Ensi kierros voi jo olla paljon parempi.
+
 ## 24.4.2017
 
 Paikka: Tali
