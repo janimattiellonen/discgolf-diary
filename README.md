@@ -8,6 +8,25 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - fysiikan kehittäminen
 
 
+
+## 4.5.2017
+
+Paikka: Tali
+
+Kesto: 1h
+
+Tänään lähdin ihan siltä kantilta, että harjoittelisin avauksia 8. väylällä. Lämmittelin ensin puttailemalla ja heittelemällä 18. väylän päädyssä olevien kahden harjoittelukorien välillä ja sen jälkeen siirryin 8. väylälle.
+
+Tuntuma harjoittelun jälkeen oli se, että kyseisellä väylällä kannattaa avata putterilla ja maltillisella heitolla. Ei niinkään kovalla rykäisyllä. Noin 50% heitoista päätyi selvästi ohi alkupään ongelmaalueet, vaikkakin kiekon loppusijainti oli usein hieman epäoptimaalinen.
+
+## 3.5.2017
+
+Paikka: Tali
+
+Kesto: 1h 50min
+
+Kehno päivä. Heitin ensin väylät 1 - 11, mutta paketti hajosi kun siinä vaiheessa oli noin +10 ja mikään ei tuntunut oikein toimivan. Aloitin uudestaan kierroksen, mutta 7. väylän jälkeen yhtä paska fiilis ja sen lisäksi liukastuin vielä mutaan ja vasen kämmenpohja kipeytyi. Ei mitään positiivista sanottavaa.
+
 ## 2.5.2017
 
 Paikka: Tali
