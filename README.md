@@ -7,6 +7,34 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 9.5.2017
+
+Paikka: Tali
+
+Kesto: 1h 50min
+
+Aloitin aamun kuvaamalla heittojani 18. väylän tiin suuntaan. Ilokseni huomasin sen, että pisimmät heitot olivat todellakin pisimpiä tuolla alueella heitettyjä heittoja koskaan. Kuvamateriaali kertookin sitten heittojen laadusta jotain.
+
+Itse kierros meni loppujen lopuksi hyvin, vaikkakin lopputulos 64 (+6) olisi voinut olla hivenen parempi. Ensimmäisellä väylällä avaus meni hienosti leopard3-kiekolla. Toinen heitto umpisurkea, osui miltei heti puuhun. Kolmas heitto hyvä. Lopputulos väylällä +1. Neljäs ja viides väylä, molemmat tuloksella -1. 
+
+Seitsemännellä väylällä heitin sitten avauksen Leopard3-kiekolla ja suhteellisen hyvällä lopputuloksella. Hieman lähti oikealle, mutta sieltä oli hyvä väylä korille. Lopputulos par. Kokeilin avata myös sinisellä Tl3-kiekolla. Lähti hienostin annukka-kulmassa ja teki pienoisen s-mutkan ja paiskautui alas oikein hyvin. Siitä olisi voinut jo pirkkoakin yrittää. Ehkä paras avaus kyseisellä väylällä.
+
+Kahdeksannella väylällä muistelin muutama päivä aiemmin tehtyjen avauksien pohjalta (8. väylältä), että slow is smooth, smooth is far: avaus yli puoleen väliin ja keskelle väylää(!). Toinen heitto olikin sitten huono, ote lipesi pahasti ja kiekko lensi vasemmalle ylös. Kokeilin harjoitusheiton valkoisella P2-putterilla ja se lensi hienossa kaaressa koriin. Etäisyyttä se 25m ehkä. Lopputulos silti +2.
+
+Yhdeksännellä väylällä hitaus on malttia. Vähänkin liikaa vauhtia niin pitkäksi menee. Lähdin avaamaan P3-putterilla, joka on suht uusi ja vähän vakaampi. Helppo -1.
+
+10. väylällä avaus sitä normaalia hyvää settiä. Toinen heitto hyvin kuluneella rocilla lähti upeasti ja meni koko "metsikön" läpi. Lopputuloksena helpohkon lähestymisen jälkeen par.
+
+13. väylällä avaus sinisellä TL3:lla aivan mainiosti alas ja lievästi vasemmalle. Pari harjoitusheittoa ja nekin vallan mainiosti.
+
+17. väylällä avaus ihan perus settiä. Toinen heitto muuten hyvä sinisellä Tl3:lla, mutta 20cm OB:n puolelle mantereen päädyssä. Sitten tuli yksi hasardiheitto, joka jäi mantereen ja saaren väliin. Lopputuloksena +3.
+
+18. väylällä avaus 20m OB:ll päädystä. TOinen heitto vähän liian lyhyeksi ja oli pakko seiftata +1. 
+
+Lopputuloksena tosiaankin +6. Tänään oli paljon onnistumisia, muutama todella pitkä putti koriin ja muutenkin ihan hyvä fiilis. Ne muutamat huonot heitot eivät tänään lannistaneet kokonaistunnetta laisinkaan. Edistyksen tuntumaa silti. Tästä on hyvä jatkaa.
+
+
+
 ## 8.5.2017
 
 Paikka: Tali
