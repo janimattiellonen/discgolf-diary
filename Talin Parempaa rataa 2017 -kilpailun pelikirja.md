@@ -134,3 +134,63 @@ Loput heitot: putterilla
 ### Väylä 14 (108m, par 3)
 
 Väylällä uusi paikka drop zonella, paljon lähempänä kuin aiemmin.
+
+Avaus-heitto: sininen TL3. Kannattaa pelata vähä seiftillä, eli hysseheitolla väylän vasemmalle puolelle. Siitä sitten seiftaus korin lähelle.
+
+Loput heitot: putterilla
+
+Jos drop zonesta: P3-putterilla
+
+### Väylä 15 (102m, par 3)
+
+Väylä pelataan pidemmälle korille.
+
+Avaus-heitto: sininen TL3
+
+Toinen heitto: Prodigy M3
+
+Loput heitot: putterilla
+
+### Väylä 16 (127m, par 3)
+
+Avaus-heitto: sininen TL3 väylän vasenta puolta pitkin
+
+Toinen heitto: Prodigy M3
+
+Loput heitot: putterilla
+
+### Väylä 17 (131m, par 3)
+
+Avaus-heitto: sininen TL3. Pitää varmistaa, että lähtee tarpeeksi oikeaa puolta pitkin, ettei vaan feidaa vasemman puolen OB:lle.
+
+Toinen heitto: Prodigy M3. Nyt pitää muistaa maltti, ei liian kova lähestyminen, koska toinen heitto tällä väylällä tuppaa itselläni menemään usein lähelle päädyn OB-rajaa.
+
+Loput heitot: putterilla
+
+### Väylä 18 (75m, par 3)
+
+Avaus-heitto: Sidewinder
+
+Loput heitot: putterilla
+
+### Väylä 19 (72m, par 3)
+
+Avaus-heitto: P2-putterilla
+
+Loput heitot: putterilla
+
+### Väylä 20 (205m, par 4)
+
+Avaus-heitto: Sidewinder
+
+Toinen heitto: Prodigy M3 tai sininen TL3 (riippuu vähän siitä, kuinka kauas avaus menee)
+
+Kolmas heitto: Prodigy M3
+
+Loput heitot: putterilla
+
+### Väylä 21 (83m, par 3)
+
+Avausheitto: Prodigy M3
+
+Loput heitot: putterilla
