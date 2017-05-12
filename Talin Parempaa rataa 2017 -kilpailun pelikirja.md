@@ -6,6 +6,9 @@ Oma lähtö: 9:00
 
 Väylää 3  ei pelata (turvallisuussyistä).
 
+## Ratakartta
+
+http://tallaajat.org/taliopen_wp/wp-content/uploads/2017/05/TO2017_Ratakartta_A2_polypropeeni.pdf
 
 ## Väylät
 
