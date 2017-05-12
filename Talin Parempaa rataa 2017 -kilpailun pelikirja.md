@@ -42,3 +42,95 @@ Jos 1. heitto jä pahasti vasemmalle niin sitten mahdollisesti TL3:lla tomahawk-
 Tätä ei siis pelata
 
 ### 4. väylä (175m, par 4)
+
+Tätä pelaan harvemmin. Ehkä heittänyt sen yhteensä kolme kertaa. Paljon puita heti tiin jälkeen.
+
+Avaus-heitto: joko Prodigy M3 tai sininen TL3. Pitää katsoa paikan päältä, miltä tuntuu.
+
+Toinen heitto: sininen TL3
+
+Kolmas heitto: Prodigy M3
+
+Loput heitot: putterilla
+
+### Väylä 5 (81m, par 3)
+
+Avaus-heitto: Stingray
+
+Loput heitot: putterilla
+
+### Väylä 6 (61m, par 3)
+
+Avaus-heitto: putterilla
+
+Loput heitot: putterilla
+
+### Väylä 7 (160m, par 4)
+
+Väylä pelataan pidempänä versiona. Olisi hyvä saada kiekko lähelle vanhan korin sijaintia.
+
+Avaus-heitto: Prodigy M3
+
+Toinen heitto: Prodigy M3 tai sininen TL3
+
+Kolmas heitto: en ihan varma vielä, ehkä Mako3 tai Stingray
+
+Loput heitot: putterilla
+
+### Väylä 8 (135m, par 3)
+
+Väylä pelataan pidempänä versiona.
+
+Avaus-heitto: koska näyttää siltä, että oikean puoleisen väylän OB-raja tulee nopeasti vastaan, on ehkä parempi heittä vasenta väylää pitkin. Täten kiekoksi Sidewinder tai Leopard 3.
+
+Toinen heitto: kulunut Roc
+
+### Väylä 9 (105m, par 3)
+
+Avaus-heitto: Leopard3. Jos tuulee kovasti vastaan niin sininen Tl3
+
+Toinen heitto: putterilla tai Prodigy M3
+
+Loput heitot: putterilla
+
+Jos avaus-heitto menee vasemmalla olevaan ryteikköön niin mahdollisuuksien mukaan sinisellä TL3:lla tomahawk.
+
+### Väylä 10 (91m, par 3)
+
+Avaus-heitto: putterilla, ilman vauhdinottoa. Avauksen kohdalla tärkeää olla rykimättä, muuten ei pysy väylällä.
+
+Toinen heitto: jos pysyy avoimella väylällä nii putterilla. Jos menee lähelle tietä niin Prodigy M3.
+
+Loput heitot: putterilla
+
+### Väylä 11 (62m, par 3)
+
+Avauksessa pitää muistaa, että väylä on lyhyt ja että korin jälkeen alkaa rinne hyvin nopeasti. Jos vähänkin tuulee vastaan niin tärkeää pitää hysse-linja. 
+
+Avaus-heitto: P3-putterilla (vähän vakaampi ja ei niin kulunut kuin muut putterini)
+
+Loput heitot: putterilla
+
+### Väylä 12 (110m, par 3)
+
+Väylä pelataan vanhalle korille.
+
+Avaus-heitto: sininen Tl3
+
+Toinen heitto: kulunut roc
+
+Loput heitot: putterilla
+
+### Väylä 13 (150m, par 4)
+
+Väylä pelataan 11. väylän vanhalta tiiltä ja vanhalle korille.
+
+Avaus-heitto: Sidewinder
+
+Toinen heitto: Sidewinder tai Stingray
+
+Loput heitot: putterilla
+
+### Väylä 14 (108m, par 3)
+
+Väylällä uusi paikka drop zonella, paljon lähempänä kuin aiemmin.
