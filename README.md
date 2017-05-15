@@ -7,6 +7,17 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 15.5.2017
+
+Paikka: Tali
+
+Kesto: 1h 20min
+
+Tänään suunnitelmissa oli "Parempaa rataa" -kilpailun pelikirjan suunnittelua. Ehdin oikeastaan vain miettiä heittoja väylillä 1-6 (normileiskan mukaiset väylät), vaikka heitinkin väylät 5 ja 6 pitkinä.
+
+Päähuomio edelleen se, että rauhallisuutta heittoihin. Ei rykäisyjä.
+
+
 ## 9.5.2017
 
 Paikka: Tali
