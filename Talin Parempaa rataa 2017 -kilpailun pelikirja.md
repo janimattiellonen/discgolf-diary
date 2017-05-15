@@ -55,7 +55,7 @@ Loput heitot: putterilla
 
 ### Väylä 5 (81m, par 3)
 
-Avaus-heitto: Stingray
+Avaus-heitto: Stingray tai kulunut valkoinen roc
 
 Loput heitot: putterilla
 
