@@ -7,6 +7,24 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 18.5.2017
+
+Paikka: Tali
+
+Kesto: 40min
+
+Tänään tuli tehtyä ad hoc -visiitti Talissa - avausharjoittelua taas kerran. Ei suuremmin muuta sanottavaa.
+
+## 17.5.2017
+
+Paikka: Tali
+
+Kesto: 4h 20min
+
+Tänään oli vähän pitempi sessio Talissa. Aloitin 2h puttaus- ja avausharjoittelulla. Heitin muutaman kerran väylät 12 ja 13.
+
+Sen jälkeen oli vuorossa asiakkaan tiimin (4 henkilöä)  kestittäminen Talissa. Opetin heille hieman perusteita, jonka jälkeen heitimme yhdessä väylät 1-11.
+
 ## 15.5.2017
 
 Paikka: Tali
