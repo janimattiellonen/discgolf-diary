@@ -7,6 +7,16 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 19.5.2017
+
+Paikka: Tali
+
+Kesto: 1h 40min
+
+Tänään ei harjoiteltu mitään, vaan päätin pelata Tali Open 2017 kisalayoutin (harvinaista herkkua). Ensimmäistä kertaa sain pelata 3. väylän, jota normaalisti ei ole (luodaan vain kisojen ajaksi). Kierros oli perus hyvää suoritusta, miinus puttaukset ja pari pahempaa hassia. Loppufiilis on ihan hyvä. Potentiaalisesti tulos olisi voinut olla siellä +5 – +7 paikkeilla.
+
+Lopputulos 82 (+12). Ihan ok. Vähän jäi harmittelemaan muutamat todella heikot puttaukset ja 20. väylällä (normaalisti 17. väylä) karmea grip lock (tjsp), jonka ansiosta toinen heitto lensi ihan väärin ja OB:lle. 
+
 ## 18.5.2017
 
 Paikka: Tali
