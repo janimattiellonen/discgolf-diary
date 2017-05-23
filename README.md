@@ -7,6 +7,14 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 23.5.2017
+
+Paikka: Tali
+
+Kesto: 1h
+
+Tänään perinteistä avausharjoittelua. Availin myös väylältä 12. Ei mitään suurempaa sanottavaa.
+
 ## 19.5.2017
 
 Paikka: Tali
