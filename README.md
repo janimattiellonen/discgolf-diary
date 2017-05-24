@@ -17,9 +17,9 @@ Koska Parempaa Rataa -kilpailu lähestyy ja oma puttaus on heikkoa, päätin tä
 
 Tämän päivän tulokset:
 
-![Foo](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/Perfect-Putt-360/2017/24.5.2017/24.5.2017-58.jpg)
+![Foo](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/Perfect-Putt-360/2017/24.5.2017/24.5.2017-58.jpeg)
 
-![Foo](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/Perfect-Putt-360/2017/24.5.2017/24.5.2017-53.jpg)
+![Foo](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/Perfect-Putt-360/2017/24.5.2017/24.5.2017-53.jpeg)
 
 ![Foo](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/Perfect-Putt-360/2017/24.5.2017/24.5.2017-46.jpg)
 
