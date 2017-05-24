@@ -11,13 +11,13 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 
 Paikka: Tali
 
-KEsto: 45min
+Kesto: 45min
 
 Koska Parempaa Rataa -kilpailu lähestyy ja oma puttaus on heikkoa, päätin tänään harjoitella pelkästään puttailua. Otin kokeiluun Perfect Put 360 -sovelluksen. Jouduin sitä varten summittaisesti laskemaan etäisyydet ja merkkasin eri kohdat kiekoilla. Täytynee ostaa kunnon mittanauha + muovikartiot, jos Perfect Putt 360 natsaa jatkossakin...
 
 Tämän päivän tulokset:
 
-* ![Foo](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/Perfect-Putt-360/2017/24.5.2017/24.5.2017-46.jpg)
+!(https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/Perfect-Putt-360/2017/24.5.2017/24.5.2017-46.jpg)
 
 ## 23.5.2017
 
