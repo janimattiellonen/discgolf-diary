@@ -7,6 +7,14 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 26.5.2017
+
+Paikka: Tali
+
+Kesto: 2h 15min
+
+Tänään kiersin 2 kierrosta, enkä harjoitellut puttailua lämmittelyä enempää. Molemmat kierrokset tuloksella 69 (+11), eli melko tasaista suoritusta. Päivän 2 kohokohtaa olivat molemmilla kierroksilla saavutetut par-tulokset 8. väylällä sekä birdiet 18. väylällä. Tänään tuli harvinaisen monta OB:ta sellaisilla väylillä, joilla en yleensä OB:tä saa.
+
 ## 24.5.2017
 
 Paikka: Tali
