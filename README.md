@@ -7,6 +7,18 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 28.5.2017
+
+Paikka: Tali
+
+Kesto: 4h 15min
+
+Tänään oli vuorossa Parempaa Rataa -kilpailu, johon olen yrittänyt etukäteen hieman varautua aiemmilla viikoilla. Tänään aloitin harjoittelemalla pääosin puttailua (joka on ehdottomasti se heikoin osaamisalueeni) ennen varsinaista kisaa.
+
+Kisan vedin kahden muun kanssa. Aika tasaista oli, mutta lopulta itselleni tuli 87 (+20), kun poolin muille kahdelle tuli jaettu tulos 84 (+17).
+
+Vaikka kyseessä epävirallinen kisa (pdga-säännöillä tosin) niin varmaankin osa huonoista heitoista meni "Kisajännityksen" pariin. Yhtään hyvää puttia ei tullut, eikä pirkkoja. Enimmäkseen bogeja ja tupla-bogeja. Mitään varsinaista hyvää ei käteen jäänyt suorituksesta, mutta hauskaa oli.
+
 ## 26.5.2017
 
 Paikka: Tali
