@@ -303,6 +303,15 @@ Kesto: 1h
 
 ## Myöhempiä harjoituksia varten
 
+
+- 29.5.2017:
+  0) julkaise video omasta heitoista
+  0) julkaise reddittiin postaus, jossa video ja pyydä analyysiä
+  0) listaa suurimmat ongelmat ja luo niiden pohjalta uusi harjoitusohjelma ja keskity yhteen epäkohtaan kerralla
+  0) videoi uudestaan heittoja, joissa olet yrittänyt korjata tiettyä ongelmaa
+  0) postaa reddittiin uusi video kun tunnet, että edistytä on tapahtunut
+  0) rinse and repeat...
+
 - SEURAAVAN KERRAN
   - https://www.youtube.com/watch?v=uKFBjR7V2DU&t
 
