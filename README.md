@@ -14,6 +14,7 @@ Tänään lepopäivä. Tosin laitoin redditin r/discgolf-kanavalle form critique
 - liikaa nopeutta
 - nose angle!
 - käsi kiertää selän taakse
+- taakseveto tapahtuu liian aikaisin
 
 Eli näihin olisi seuraavaksi tarkoitus panostaa.
 
