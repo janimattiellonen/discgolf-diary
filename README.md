@@ -7,6 +7,16 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 29.5.2017
+
+Tänään lepopäivä. Tosin laitoin redditin r/discgolf-kanavalle form critique -pyynnön maaliskuussa kuvaamastani heitosta (https://www.reddit.com/r/discgolf/comments/6e2kqr/form_critique_please/). Palautteet:
+
+- liikaa nopeutta
+- nose angle!
+- käsi kiertää selän taakse
+
+Eli näihin olisi seuraavaksi tarkoitus panostaa.
+
 ## 28.5.2017
 
 Paikka: Tali
