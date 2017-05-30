@@ -7,6 +7,14 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 30.5.2017
+
+Paikka: Tali
+
+Kesto: 2h 30min
+
+Eilisen form critiquen jälkeen otin tehtäväkseni keskittyä pääosin siihen, että avaukset lähtevät smoothisti, ilman kovaa vauhtia. Pelasin kierroksen Santerin kanssa ja hän kuvasi muutamalla väylällä avauksiani. Täytyypä analysoida videot kun saan ne. Kierros meni aika heikosti. 17. väylällä sain kaikki heitot kohdilleen ja lopputuloksena par.
+
 ## 29.5.2017
 
 Tänään lepopäivä. Tosin laitoin redditin r/discgolf-kanavalle form critique -pyynnön maaliskuussa kuvaamastani heitosta (https://www.reddit.com/r/discgolf/comments/6e2kqr/form_critique_please/). Palautteet:
