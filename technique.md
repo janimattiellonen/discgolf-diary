@@ -67,7 +67,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 
 - [David Feldberg Putting Clinic @ NZDG Nationals, February 2015](https://www.youtube.com/watch?v=-wrjOOzXQ1Y&feature=youtu.be)
 
-- [Disc Golf putting clinic by David Feldberg (2011)] (https://www.youtube.com/watch?v=N_7RPOmSSsU)
+- [Disc Golf putting clinic by David Feldberg (2011)](https://www.youtube.com/watch?v=N_7RPOmSSsU)
 
 ## Physics training
 
