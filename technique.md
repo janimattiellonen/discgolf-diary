@@ -60,12 +60,14 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 
 ## Putting
 
+- [Wysocki Putting Compilation - 2017 Masters Cup ](https://www.youtube.com/watch?v=kY5lnMs1t24&feature=youtu.be)
+
+
 ### Push putt
 
-[David Feldberg Putting Clinic @ NZDG Nationals, February 2015](https://www.youtube.com/watch?v=-wrjOOzXQ1Y&feature=youtu.be)
+- [David Feldberg Putting Clinic @ NZDG Nationals, February 2015](https://www.youtube.com/watch?v=-wrjOOzXQ1Y&feature=youtu.be)
 
-[Disc Golf putting clinic by David Feldberg (2011)] (https://www.youtube.com/watch?v=N_7RPOmSSsU)
-
+- [Disc Golf putting clinic by David Feldberg (2011)] (https://www.youtube.com/watch?v=N_7RPOmSSsU)
 
 ## Physics training
 
