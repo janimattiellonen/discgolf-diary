@@ -7,6 +7,10 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 8.6.2017
+
+Vaikka muutama päivä ilman kirjauksia, niin kierroksia on kertynyt useampia. Olen edelleen keskittynyt poistamaan turhat vauhdit avauksista. Olen myös harjoitellut paljon paikaltaan heittämistä. Oittaan rangella pääsen välillä paikaltaan heittäesssä 90m rajapyykeille. Vauhdinotolla pääsin kerran 105 metriin. Eilen puttausta harjoitellessa koin hetkellistä onnistumisen tunnetta: kiekot lensivät koriin säännöllisesti ja puttaus tuntui hyvältä. Pitää ammentaa tota fiilistä kierroksien aikana!
+
 ## 30.5.2017
 
 Paikka: Tali
