@@ -11,7 +11,7 @@ Also do note that these are my personal notes, which I update periodically. Some
 - spine should be straight during reachback (not bent left or right)
 - during reachback, the hand should not curl behind your body 
   - this forces your hand to move in a circular motion and you will lose power and accuracy
-- during reachback, the disc should be a bit away from your body
+- during reachback, the disc should be a bit (maybe quite a lot) away from your body
 - plant foot should be approximately 90 degrees towards the direction your are throwing
 - both feet should not be on the same imaginary line that is pointing where you are about to throw
   - instead, the plant foot should be approximately one foot's length offset to your left foot
@@ -48,7 +48,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 
 ### Weight shift
 
-- [Haeavy Disc](https://youtu.be/fD4u5_wbDec?t=50) mentions that during weight shift, your hip should be shifted towards the [sky](https://vimeo.com/64171158). If your hip is leaning backwards, you will lose power.
+[Haeavy Disc](https://youtu.be/fD4u5_wbDec?t=50) mentions that during weight shift, your hip should be shifted towards the [sky](https://vimeo.com/64171158). If your hip is leaning backwards, you will lose power. Additionally, when turning your rear leg's knee, you should kinda point it downwards, that seems to support a correct way for your hips to turn properly.
 
 #### Order of movement
 
