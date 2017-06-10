@@ -7,6 +7,18 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 10.6.2017
+
+Tänään oli myös frisbeegolf-painotteinen päivä. Aamulla ensin Kivikkoon Superlauantai-kisaan. Vedin yhden harjoituskierroksen tuloksella 58 (+2) ja yhden kilpakierroksen tuloksella 68 (+8). Kilpakierros sisälsi Tyynestä 1. väylän, joten kokonais-par oli 60, eikä 56.
+
+Käväisin myös Siltamäessä heittämässä tuloksen 51 (-2). Siltamäen kohokohta oli 16. väylän pirkottaminen (108m väyläkuvauksen mukaan, avasin vähän yli 100 metriin).
+
+Paikka: Oittaa
+
+Kesto: 2h 30min
+
+Tänään harjoittelin Oittaan rangella avauksia pelkästään puttereilla ja midareilla. Valitsin tietyn kohdan rangella ja yritin saada kaikki kiekot mahdollisimman lähelle sitä kohtaa. Sen jälkeen heitin takaisin alkuun, missä harjoituskori ja puttailin kiekot koriin. Toistin tätä aika monta kertaa. Lopuksi kiersin yhden kierroksen, samoilla kiekoilla tuloksella 59 (+4).
+
 ## 8.6.2017
 
 Vaikka muutama päivä ilman kirjauksia, niin kierroksia on kertynyt useampia. Olen edelleen keskittynyt poistamaan turhat vauhdit avauksista. Olen myös harjoitellut paljon paikaltaan heittämistä. Oittaan rangella pääsen välillä paikaltaan heittäesssä 90m rajapyykeille. Vauhdinotolla pääsin kerran 105 metriin. Eilen puttausta harjoitellessa koin hetkellistä onnistumisen tunnetta: kiekot lensivät koriin säännöllisesti ja puttaus tuntui hyvältä. Pitää ammentaa tota fiilistä kierroksien aikana!
