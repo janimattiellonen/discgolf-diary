@@ -7,6 +7,14 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 13.6.2017
+
+Paikka: Tali
+
+Kesto: 30min
+
+Tänään lyhyt puttaussessio. Ei tuntunut kauhean hyvältä.
+
 ## 10.6.2017
 
 Tänään oli myös frisbeegolf-painotteinen päivä. Aamulla ensin Kivikkoon Superlauantai-kisaan. Vedin yhden harjoituskierroksen tuloksella 58 (+2) ja yhden kilpakierroksen tuloksella 68 (+8). Kilpakierros sisälsi Tyynestä 1. väylän, joten kokonais-par oli 60, eikä 56.
