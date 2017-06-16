@@ -7,6 +7,16 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 16.6.2017
+
+Paikka: Tali
+
+Kesto: 3h
+
+Tänään kiersin Talin 2 kertaa. Ensimmäinen kierros oli katastrofi. 17. väylällä 3 avausta peräkkäin OB:lle. Onnistuin avaamaan 11. väylän Breakoutilla vesiesteen yli lopputuloksella -1.
+
+Toinen kierros alkoi hyvin kun sain 1. väylällä pirkon, ja vielä suht helpon sellaisen. Kierros eteni hieman ailahtelevasti, mutta sain lopulta 4 pirkkoa väyliltä 1, 6, 9 ja 16. Väylät 4, 5 ja 7 mokelsin kunnolla (+2, +2 ja +3). Muuten ihan hyvää heittelyä. 13. väylän avasin pisimmälle koskaan, vikan puun lähelle.
+
 ## 13.6.2017
 
 Paikka: Tali
