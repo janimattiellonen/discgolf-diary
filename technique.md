@@ -17,6 +17,7 @@ Also do note that these are my personal notes, which I update periodically. Some
   - instead, the plant foot should be approximately one foot's length offset to your left foot
 - your free arm should stay as close to your body as possibly
   - the more compact you are, the faster you spin (think figure skaters when they spin; they keep their arms really close to their bodies)
+- when throwing from stand still stance, don't start the throw with full reachback. Instead, start from proper foot position and do a smooth and slow reachback first. This lets you get into a better rhytm. It feels more natural.
 
 ### Footwork during throw
 
