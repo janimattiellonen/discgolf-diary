@@ -7,6 +7,18 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 21.6.2017
+
+Paikka: Tali
+
+Kesto: 3h 10min
+
+ALoitin heti kierroksella, joka meni penkin alle, ja keskeytin 11. väylän jälkeen. Availin hetken roskiksien luota takimmaiselle harjoituskorille, jonka jälkeen totesin että heitot sujuvat hieman paremmin ja lähdin uudelle kierrokselle. Vaikka kierros ei tuloksellisti ollut hyvä (tuloksia en muutaman väylän jälkeen jaksanut kerätä), niin selkeesti parempaa meininkiä kuin edellisellä kierroksella. 
+
+Avauksia harjoitellessa huomasin sen, että jos pidän kiekkoa vähän ulompana kropasta ja en tee niin rajua taaksevientiä, niin heitot tuntuvat lähtevän paremmin kädestä.
+
+Edelleen minulle tuottaa hankaluuksia ottaa vasen jalka ja olkapäät mukaan heittoihin.
+
 ## 16.6.2017
 
 Paikka: Tali
