@@ -368,6 +368,8 @@ Kesto: 1h
 
 ## Myöhempiä harjoituksia varten
 
+- 26.6.2017:
+    - ennen taakse vientiä, pidä heittokäsi rentona
 
 - 29.5.2017:
   
