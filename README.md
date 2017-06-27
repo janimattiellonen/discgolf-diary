@@ -16,6 +16,15 @@ Kesto: 1h 30min
 
 Tänään itse Jalle Stoorin vetämällä 90min opetustunnilla. Käytiin lähinnä läpi omaa avaustekniikkaa ja yritettiin saada painon siirtoa paremmalle mallille.
 
+Jallen pääpointit:
+
+- vähän kapeampi askelleveys
+- ranteen ei tule olla niin taipunut kuin mitä se minulla yleensä on, vain lievästi taipunut
+- taaksevedon yhteydessä heittokäden tulisi olla linjassa kohteen kanssa
+- yritä löytää kohdepiste, johon sihtaat
+- heitto voisi kulkea about rintaluiden kohdalta
+- yritä välttää dippausta
+
 ## 21.6.2017
 
 Paikka: Tali
