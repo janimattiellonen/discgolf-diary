@@ -7,6 +7,15 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+
+## 27.6.2017
+
+Paikka: Talin jalkapallohallin viereinen nurmikko
+
+Kesto: 1h 30min
+
+Tänään itse Jalle Stoorin vetämällä 90min opetustunnilla. Käytiin lähinnä läpi omaa avaustekniikkaa ja yritettiin saada painon siirtoa paremmalle mallille.
+
 ## 21.6.2017
 
 Paikka: Tali
