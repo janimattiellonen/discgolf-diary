@@ -25,6 +25,8 @@ Jallen pääpointit:
 - yritä löytää kohdepiste, johon sihtaat
 - heitto voisi kulkea about rintaluiden alaosan yläpuolelta
 - yritä välttää dippausta
+- älä aloita tilasta, jossa heittokäsi on jo valmiiksi viety taakse:
+    - vie heittokäsi taakepäin rentona ja ota samalla lyhyt askel etummaisella jalalla (eli älä pidä jalkoja koko ajan maassa)
 
 ## 21.6.2017
 
@@ -387,6 +389,8 @@ Kesto: 1h
 
 ## Myöhempiä harjoituksia varten
 
+- 27.6.2017:
+    - 
 - 26.6.2017:
     - ennen taakse vientiä, pidä heittokäsi rentona
 
