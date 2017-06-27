@@ -20,9 +20,10 @@ Jallen pääpointit:
 
 - vähän kapeampi askelleveys
 - ranteen ei tule olla niin taipunut kuin mitä se minulla yleensä on, vain lievästi taipunut
+    - heittokäden tullessa rintakehän kohdalle, kääntyy ranne sitten enemmän
 - taaksevedon yhteydessä heittokäden tulisi olla linjassa kohteen kanssa
 - yritä löytää kohdepiste, johon sihtaat
-- heitto voisi kulkea about rintaluiden kohdalta
+- heitto voisi kulkea about rintaluiden alaosan yläpuolelta
 - yritä välttää dippausta
 
 ## 21.6.2017
