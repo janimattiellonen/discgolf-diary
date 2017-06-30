@@ -2,7 +2,7 @@
 
 Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 
-- ajoituksen sekä painon siirtymän (weigh shifting) kehittäminen
+- ajoituksen sekä painon siirtymän (weight shifting) kehittäminen
 - tarkkuus avauksissa ja lähestymisissä
 - panostusta puttaamiseen
 - fysiikan kehittäminen
