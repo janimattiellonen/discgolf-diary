@@ -397,7 +397,8 @@ Kesto: 1h
 ## Myöhempiä harjoituksia varten
 
 - 15.7.2017:
-    - jos lähden avaamaan vauhdilla ja x-stepillä niin yleensä heittokäsi on ojennettuna heittosuuntaan. Tämä vaikeuttanee reachbackin ja plant footin synkkausta. Kokeile miltä tuntuu, jos heittokäsi ei olekaan täysin suorana kun aloitat. Enemmänkin core-alueella.
+    - jos lähdet avaamaan vauhdilla ja x-stepillä niin yleensä heittokäsi on ojennettuna heittosuuntaan. Tämä vaikeuttanee reachbackin ja plant footin synkkausta. Kokeile miltä tuntuu, jos heittokäsi ei olekaan täysin suorana kun aloitat. Enemmänkin core-alueella.
+    - stand still -heitto ja full reachbackin saavuttaminen: sen sijaan, että vain siirrät oikeaa jalkaa samalla kuin heitto käsi viedään taakse, tee sama jutu siten että siirrät suurimman osan (ainakin suuren osan) painostasi vasemmalle jalalle samaan aikaan kuin viet heittokäden taakse. Tällöin pystyt oikeasti ponnistamaan ja siten saat kropan kääntymään ja tuotua heittokäden core-alueelle.
     
 - 26.6.2017:
     - ennen taakse vientiä, pidä heittokäsi rentona
