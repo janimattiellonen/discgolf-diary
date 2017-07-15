@@ -396,8 +396,9 @@ Kesto: 1h
 
 ## Myöhempiä harjoituksia varten
 
-- 27.6.2017:
-    - 
+- 15.7.2017:
+    - jos lähden avaamaan vauhdilla ja x-stepillä niin yleensä heittokäsi on ojennettuna heittosuuntaan. Tämä vaikeuttanee reachbackin ja plant footin synkkausta. Kokeile miltä tuntuu, jos heittokäsi ei olekaan täysin suorana kun aloitat. Enemmänkin core-alueella.
+    
 - 26.6.2017:
     - ennen taakse vientiä, pidä heittokäsi rentona
 
