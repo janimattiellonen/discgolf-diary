@@ -34,8 +34,8 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
   - Paul McBeth, Will Schusterick, Jeremy Koling, Dave Feldberg
 - [An "In-Depth" Video Analysis - Will Schusterick](https://www.youtube.com/watch?v=wE2qWnVaqK0&feature=youtu.be)
 - [Jalle Stoor slow-motion opening on #9 in Tali Open 2017](https://www.instagram.com/p/BUWG5kVlQWF/?tagged=talintallaajat)
-
-
+- [Disc Golf shots in Super Slow Motion (Paul McBeth) ](https://www.youtube.com/watch?v=RkPwHUVInes)
+  - European Opean 215
 ### Holding the disc
 
 - correct holding position: thumb should point forwards, not up
