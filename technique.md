@@ -79,6 +79,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 ## General videos
 
 - [Paul McBeth tips](https://www.youtube.com/watch?v=U0gzNIRxRbY)
+  - Nate Sexton and Paul McBeth goes through 5 major points
 
 ## Field work / training routines
 
