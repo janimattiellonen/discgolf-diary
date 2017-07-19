@@ -13,6 +13,7 @@ Also do note that these are my personal notes, which I update periodically. Some
   - this forces your hand to move in a circular motion and you will lose power and accuracy
 - during reachback, the disc should be a bit (maybe quite a lot) away from your body
 - plant foot should be approximately 90 degrees towards the direction your are throwing
+  - when planting the foot, plant your toes first, and the heel of the foot
 - both feet should not be on the same imaginary line that is pointing where you are about to throw
   - instead, the plant foot should be approximately one foot's length offset to your left foot
 - your free arm should stay as close to your body as possibly
