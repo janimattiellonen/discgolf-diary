@@ -7,6 +7,14 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 1.8.2017
+
+Paikka: Kodin tekonurmikenttä
+
+Kesto: 1h
+
+Tänänä kävin ensimmäistä kertaa kotinin lähellä olevalla tekonurmikentällä harjoittelemassa avauksia. Yritin keskittyä voiman siirtoon.
+
 ## 30.6.2017
 
 Paikka: Tali
