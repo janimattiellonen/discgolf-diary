@@ -7,6 +7,16 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 8.7.2017
+
+Paikka: Kotikenttä
+
+Kesto: 2h
+
+Tänään jatkoin avausharjoituksia, pääosin vauhdinotolla. Pari kertaa kiekot päätyivät yli 100m, kerran peräti 112m, tosin taas kerran skippien kautta. Pääpaino kiekoista siinä 75-90m kohdalla. 
+
+Taisin revähtää jonkun lihanksen takapuolessa kun on hieman kipeä.
+
 ## 1.8.2017
 
 Paikka: Kodin tekonurmikenttä
