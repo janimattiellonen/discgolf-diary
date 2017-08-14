@@ -7,7 +7,16 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
-## 8.7.2017
+## 14.8.2017
+
+Paikka: Kotikenttä
+
+Kesto: 1h 30min
+
+Aloitin aamun annukka-avauksilla. Se on osa-alue, jota minun tulisi kehittää. Lopuksi avasin drivereilla. Tänään tuntui jotain kolahtavan paikoilleen, koska noin 55:tä heitosta vajaat 10 heittoa ylitti 100m viivan (taas kerran skippien kautta). Epäilen, että "onnistuminen" johtui siitä, että ajoitus oli parempi ja että juuri ennen kiihdyttämistä painoin kantapään maahan.
+
+
+## 8.8.2017
 
 Paikka: Kotikenttä
 
