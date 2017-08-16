@@ -97,7 +97,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 - [GrizzlyGinger Disc Golf - an aspiring guy quite new to disc golf](https://www.youtube.com/channel/UC3ScPovPj934gfuhyv1zi8g)
 - [Disc Golf Strong](https://www.youtube.com/channel/UCGXC_YbchbZGwLSGDvegrrA)
 - [Simon lizotte Eagle McMahon Clinic tips and tricks](https://youtu.be/qOOjIZ1_w8Q)
-
+- [12 Classic Mistakes In Disc Golf. No.1 - Classic Rounding](https://www.vorticasport.com/single-post/2017/08/15/12-Classic-Mistakes-In-Disc-Golf---Classic-Rounding)
 ## Requires further investigation
 
 - [Golf swing || Dave Feldberg Disc Golf Clinic Biomechanics](https://www.youtube.com/watch?v=7e6B_r90d0c)
