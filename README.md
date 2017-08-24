@@ -9,6 +9,20 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 
 ## 24.8.2017
 
+Paikka: Oittaa
+
+Kesto: 2h 30min
+
+Lhdin Oittaalle harjoittelemaan avauksia. Aloitin repullisella midareita ja puttereita, joilla availin rangella. Jossain vaiheessa yritin saada kieko mahdollisimman lähelle 50m kylttiä. Ajoittain ihan mukavan tarkasti sain kiekot kyltin lähelle.
+
+Puttailu taas meni aika heikosti, enkö kauhean kauan jaksanut sitä katsella. 
+
+Kiersin väylät 1-3 kertaalleen pelaten ne pelkästää midareilla ja puttereilla. Muutamat avaukset per väylä.
+
+Lopuksi kävin vaihtamassa reppuun pelkästään draivereita ja lopetin illan availemalla muutaman kerran rangella. Kerran sain Kraitilla rikottua 100m. Ihan hyvä fiilis.
+
+## 24.8.2017
+
 Paikka: Tali
 
 Kesto: 1h 40min
@@ -22,7 +36,6 @@ Paikka: Kotikenttä
 Kesto: 1h 30min
 
 Aloitin aamun annukka-avauksilla. Se on osa-alue, jota minun tulisi kehittää. Lopuksi avasin drivereilla. Tänään tuntui jotain kolahtavan paikoilleen, koska noin 55:tä heitosta vajaat 10 heittoa ylitti 100m viivan (taas kerran skippien kautta). Epäilen, että "onnistuminen" johtui siitä, että ajoitus oli parempi ja että juuri ennen kiihdyttämistä painoin kantapään maahan.
-
 
 ## 8.8.2017
 
