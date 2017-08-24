@@ -7,6 +7,14 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 24.8.2017
+
+Paikka: Tali
+
+Kesto: 1h 40min
+
+Aloitin kietämällä väylät 1-6, mutta fiilis oli sen verran paska, että loput ajasta harjoittelin annukka-avauksia 15. väylällä. Aika moni avaus lähti ihan kivasti ja jopa ihan korille asti.
+
 ## 14.8.2017
 
 Paikka: Kotikenttä
