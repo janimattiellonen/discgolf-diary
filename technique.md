@@ -51,7 +51,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 
 ### Weight shift
 
-[Haeavy Disc](https://youtu.be/fD4u5_wbDec?t=50) mentions that during weight shift, your hip should be shifted towards the [sky](https://vimeo.com/64171158). If your hip is leaning backwards, you will lose power. Additionally, when turning your rear leg's knee, you should kinda point it downwards, that seems to support a correct way for your hips to turn properly.
+[Heavy Disc](https://youtu.be/fD4u5_wbDec?t=50) mentions that during weight shift, your hip should be shifted towards the [sky](https://vimeo.com/64171158). If your hip is leaning backwards, you will lose power. Additionally, when turning your rear leg's knee, you should kinda point it downwards, that seems to support a correct way for your hips to turn properly.
 
 #### Order of movement
 
@@ -98,6 +98,8 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 - [Disc Golf Strong](https://www.youtube.com/channel/UCGXC_YbchbZGwLSGDvegrrA)
 - [Simon lizotte Eagle McMahon Clinic tips and tricks](https://youtu.be/qOOjIZ1_w8Q)
 - [12 Classic Mistakes In Disc Golf. No.1 - Classic Rounding](https://www.vorticasport.com/single-post/2017/08/15/12-Classic-Mistakes-In-Disc-Golf---Classic-Rounding)
+- [12 Classic Mistakes In Disc Golf. No.2 - Classic Lazy Off Arm](https://www.vorticasport.com/single-post/2017/08/23/Classic-Lazy-Off-Arm-Issue)
+
 ## Requires further investigation
 
 - [Golf swing || Dave Feldberg Disc Golf Clinic Biomechanics](https://www.youtube.com/watch?v=7e6B_r90d0c)
