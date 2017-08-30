@@ -1,3 +1,7 @@
+# Different shots
+
+The idea is to gather a list of different shots that you can make in disc golf.
+
 ## Flat shot
 
 [Paul McBeth - European Open 2017 hole 2 (stand still, approach shot)](https://youtu.be/Cuw8bXzPcHI?t=690)
