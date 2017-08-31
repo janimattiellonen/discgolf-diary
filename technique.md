@@ -98,7 +98,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 - [Disc Golf Strong](https://www.youtube.com/channel/UCGXC_YbchbZGwLSGDvegrrA)
 - [Simon lizotte Eagle McMahon Clinic tips and tricks](https://youtu.be/qOOjIZ1_w8Q)
 
-## 2 Classic Mistakes In Disc Golf
+## 12 Classic Mistakes In Disc Golf
 - [12 Classic Mistakes In Disc Golf. No.1 - Classic Rounding](https://www.vorticasport.com/single-post/2017/08/15/12-Classic-Mistakes-In-Disc-Golf---Classic-Rounding)
 - [12 Classic Mistakes In Disc Golf. No.2 - Classic Lazy Off Arm](https://www.vorticasport.com/single-post/2017/08/23/Classic-Lazy-Off-Arm-Issue)
 - [12 Classic Mistakes In Disc Golf. No.3 - Classic Dipping](https://www.vorticasport.com/single-post/2017/08/31/12-Classic-Mistakes-In-Disc-Golf-No3---Classic-Dipping-Issue)
