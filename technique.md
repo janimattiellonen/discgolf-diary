@@ -19,7 +19,7 @@ Also do note that these are my personal notes, which I update periodically. Some
 - your free arm should stay as close to your body as possibly
   - the more compact you are, the faster you spin (think figure skaters when they spin; they keep their arms really close to their bodies)
 - when throwing from stand still stance, don't start the throw with full reachback. Instead, start from proper foot position and do a smooth and slow reachback first. This lets you get into a better rhytm. It feels more natural.
-- when at desired reachback, start the throw by twisting your left knee down and inwards. Your left foot's heel should be a bit off the ground when you do this manoeuvre (makes it easier to twist and to get some power to it). Twisting your knee makes your left hand get closer to your core area. Only when the disc is at the right pec, should you start accelerating the disc elbow first and turning your upper body and shoulders.
+- when at desired reachback, start the throw by twisting your left knee down and inwards. Your left foot's heel should be a bit off the ground when you do this manoeuvre (makes it easier to twist and to get some power to it). Twisting your knee makes your throwing hand get closer to your core area. Only when the disc is at the right pec, should you start accelerating the disc elbow first and turning your upper body and shoulders. ALso use the hing movement to further accelerate the disc.
 
 ### Footwork during throw
 
