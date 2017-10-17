@@ -10,3 +10,4 @@ Here is a list of issue I'm having. These are things I should concentrate on fix
 - back turns too early
 - nose angle
 - reach back / plant foot sync issue
+- Line Of Play (LOP) not held
