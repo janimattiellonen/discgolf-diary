@@ -7,6 +7,14 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 9.11.2017
+
+Paikka: Talin rugby-kenttä
+
+Kesto: 1h 15min
+
+Tänään harjoittelin avauksia rugby-maalilta jalkapallomaalille ja takaisin. Huomasin, että avaukset lähtivät paremmin, jos lähden tekemään taaksevientiä hyvin rauhallisesti samalla kuin siirsin etummaista jalkaa asentoon. Rauhallinen liike edesauttoi hyvän rytmin ja fiiliksen saamiseen ja avaukset lähtivät pääosin sinne, minne halusin. 
+
 ## 25.8.2017
 
 Paikka: Kotikenttä
