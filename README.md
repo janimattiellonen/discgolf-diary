@@ -15,6 +15,8 @@ Kesto: 1h 15min
 
 Tänään harjoittelin avauksia rugby-maalilta jalkapallomaalille ja takaisin. Huomasin, että avaukset lähtivät paremmin, jos lähden tekemään taaksevientiä hyvin rauhallisesti samalla kuin siirsin etummaista jalkaa asentoon. Rauhallinen liike edesauttoi hyvän rytmin ja fiiliksen saamiseen ja avaukset lähtivät pääosin sinne, minne halusin. 
 
+(tässä välissä jatkuvaa harjoittelua, mutta niistä ei merkintöjä)
+
 ## 25.8.2017
 
 Paikka: Kotikenttä
