@@ -7,6 +7,16 @@ Treenipäiväkirja vuodelle 2017. Tämän vuoden tavoitteina:
 - panostusta puttaamiseen
 - fysiikan kehittäminen
 
+## 22.11.2017
+
+Paikka: Tali
+
+Kesto: 1h 30min
+
+Eilisen huonon kierroksen tyngän jälkeen päätin tänään keskittyä vain avausharjoitteluun valitulla väylällä. Tänään 7. väylä. Käytin suurimman osan ajasta annukkaheittojen (annukka flex shot) harjoittelemiseen. Alun kankeuden (menkööt kropan alkujäykkyyden piikkiin) jälkeen heitot toimivat pääosin ihan hyvin ja useampikin kiekko lensi aika lailla halutulla tavalla ja pysyi väylällä (ei ainakaan lentäneet kauheasti vasemmalle tai oikealle). Lisäksi heitin kaikki nämä heitot ilman vauhdinottoa.
+
+Tästä päivästä voi ottaa sen irti, että kannattaa tosiaankin heittää ilman vauhtia. Lisäksi voisin keskittää harjoituspäivän aina tietylle väylälle.
+
 ## 9.11.2017
 
 Paikka: Talin rugby-kenttä
