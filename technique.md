@@ -61,6 +61,9 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 0. shoulders
 0. arms
 
+## Bracing
+
+- [Heavy Disc - DiscGolf Backhand: Feet Together / One Step](https://www.youtube.com/watch?v=pleUjYKwf0g)
 
 ## Putting
 
