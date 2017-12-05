@@ -14,6 +14,10 @@ The idea is to gather a list of different shots that you can make in disc golf.
 
 [Simon Lizotte - European Open 2017 hole 2](https://youtu.be/Cuw8bXzPcHI?t=385)
 
+## Hyzer flip
+
+[Quick Tips - The Hyzer Flip](https://www.youtube.com/watch?v=x3K53OqEOZg)
+
 ## Anhyzer
 
 
