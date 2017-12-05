@@ -8,7 +8,7 @@ The idea is to gather a list of different shots that you can make in disc golf.
 
 ## Flex shot
 
-
+[Quick Tips - The Flex Shot](https://www.youtube.com/watch?v=vH0VG1V6HUk)
 
 ## Hyzer
 
