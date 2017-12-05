@@ -38,6 +38,9 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 - [Toni Syrjänen slow-motion opening on #9 in Tali Open 2017](https://www.instagram.com/p/BUWG5kVlQWF/?tagged=talintallaajat)
 - [Disc Golf shots in Super Slow Motion (Paul McBeth) ](https://www.youtube.com/watch?v=RkPwHUVInes)
   - European Opean 215
+- [Standstill Drives with Overhead Perspective](https://www.youtube.com/watch?v=Hr9y6FUgLZ4)  
+  - Mike C Disc Golf
+  
 ### Holding the disc
 
 - correct holding position: thumb should point forwards, not up
