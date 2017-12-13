@@ -82,6 +82,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 ## Physics training
 
 - [Stronger Legs for Disc Golf? Start with the Squat](https://www.youtube.com/watch?v=EBDh52zsnMk)
+- [https://www.facebook.com/seth.munsey/videos/10215109809958592/](Seth Munsey and Ricky Wysocki work-out video)
 
 ## General videos
 
