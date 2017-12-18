@@ -49,7 +49,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 
 ### Timing
 
-- you should gain full reachback at exactly the same time when your plant foot is planted on the ground
+- you should gain full reachback at exactly the same time when the ball of your plant foot is planted on the ground
 
 - [How to correctly time a disc golf throw (Danny Lindahl)](https://www.youtube.com/watch?v=A2_OVPhLg0A)
 
