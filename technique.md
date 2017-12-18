@@ -112,6 +112,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 - [12 Classic Mistakes In Disc Golf. No.3 - Classic Dipping](https://www.vorticasport.com/single-post/2017/08/31/12-Classic-Mistakes-In-Disc-Golf-No3---Classic-Dipping-Issue)
 - [12 Classic Mistakes in Disc Golf. No. 4 - Classic Low Elbow](https://www.vorticasport.com/single-post/2017/09/08/12-Classic-Mistakes-in-Disc-Golf-No-4---Classic-Low-Elbow)
 - [12 Classic Mistakes in Disc Golf. No 5 - Classic Teepad Speed Issue](https://www.vorticasport.com/single-post/2017/11/30/12-Classic-Mistakes-in-Disc-Golf-No-5---Classic-Teepad-Speed-Issue)
+  "The correct sequence of events is that the plant foot is planted, then the heel lands, weight is transferred to it, and THEN the player begins pulling the disc in, and turning their left knee. NOT BEFORE."
 
 ## Requires further investigation
 
