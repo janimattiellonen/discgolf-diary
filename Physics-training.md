@@ -2,7 +2,7 @@
 
 Seth Munsay - Disc Golf Strong
 
-## Video 1 - Dead Bug
+## Video 1 - Dead bug
 
 - keep tail bone up and ribs down
 - https://www.facebook.com/DynamicDiscs/videos/10159732843585654/
@@ -14,3 +14,7 @@ Seth Munsay - Disc Golf Strong
 ### Dead bug with alternating arms
 
 ![Dead bug with alternating arms](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/images/deadbug%20with%20alternating%20arms.png)
+
+## Video 2 - Bird dog
+
+- https://www.facebook.com/DynamicDiscs/videos/10159732859170654/
