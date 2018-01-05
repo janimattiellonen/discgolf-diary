@@ -18,3 +18,5 @@ Seth Munsay - Disc Golf Strong
 ## Video 2 - Bird dog
 
 - https://www.facebook.com/DynamicDiscs/videos/10159732859170654/
+
+![Bird dog](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/images/bird-dog.png)
