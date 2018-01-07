@@ -21,3 +21,9 @@ Seth Munsay - Disc Golf Strong
 - https://www.facebook.com/DynamicDiscs/videos/10159732859170654/
 
 ![Bird dog](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/images/bird-dog.png)
+
+## Vide 3 - Glute bridge
+
+- feet separated at shoulder length
+
+![Glut bridge](https://www.facebook.com/DynamicDiscs/videos/10159732918035654/)
