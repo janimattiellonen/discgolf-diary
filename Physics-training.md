@@ -30,3 +30,10 @@ Video series can be found here: https://www.facebook.com/pg/DynamicDiscs/videos/
 - https://www.facebook.com/DynamicDiscs/videos/10159732918035654/
 
 ![Glute bridge](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/images/glute-bridge.jpg)
+
+## Video 4 - side plank
+
+- start with knee position, easier
+-  https://www.facebook.com/DynamicDiscs/videos/10159732975320654/
+
+![Side plank](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/images/side-plank.jpg)
