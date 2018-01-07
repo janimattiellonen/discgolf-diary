@@ -8,6 +8,7 @@ Also do note that these are my personal notes, which I update periodically. Some
 
 ## Throwing / opening shots
 
+- use power grip
 - spine should be straight during reachback (not bent left or right)
 - during reachback, the hand should not curl behind your body 
   - this forces your hand to move in a circular motion and you will lose power and accuracy
@@ -79,11 +80,16 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 
 - [Disc Golf putting clinic by David Feldberg (2011)](https://www.youtube.com/watch?v=N_7RPOmSSsU)
 
+## Upshots / approaches
+
+- Will Schusterick suggests that you uses the fan grip as you most often don't need so much power during approach shots; precision is more important.
+
 ## Physics training
 
 - [Stronger Legs for Disc Golf? Start with the Squat](https://www.youtube.com/watch?v=EBDh52zsnMk)
 - [https://www.facebook.com/seth.munsey/videos/10215109809958592/](Seth Munsey and Ricky Wysocki work-out video)
 - [Physics training | Disc Golf Strong](Physics-training.md)
+
 ## General videos
 
 - [Paul McBeth tips](https://www.youtube.com/watch?v=U0gzNIRxRbY)
