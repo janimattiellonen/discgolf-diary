@@ -34,6 +34,14 @@ Video series can be found here: https://www.facebook.com/pg/DynamicDiscs/videos/
 ## Video 4 - side plank
 
 - start with knee position, easier
--  https://www.facebook.com/DynamicDiscs/videos/10159732975320654/
+- https://www.facebook.com/DynamicDiscs/videos/10159732975320654/
 
 ![Side plank](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/images/side-plank.jpg)
+
+## Video 5 - Wall Anti-rotational Plank
+
+- https://www.facebook.com/DynamicDiscs/videos/10159732994320654/
+
+## Video 6 - Half-kneeling Wall Antirotational Plank
+
+- https://www.facebook.com/DynamicDiscs/videos/10159733010155654/
