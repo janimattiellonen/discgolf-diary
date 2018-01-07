@@ -2,6 +2,8 @@
 
 Seth Munsay - Disc Golf Strong
 
+Video series can be found here: https://www.facebook.com/pg/DynamicDiscs/videos/?ref=page_internal
+
 ## Video 1 - Dead bug
 
 - keep tail bone up and ribs down
@@ -22,7 +24,7 @@ Seth Munsay - Disc Golf Strong
 
 ![Bird dog](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/images/bird-dog.png)
 
-## Vide 3 - Glute bridge
+## Video 3 - Glute bridge
 
 - feet separated at shoulder length
 - https://www.facebook.com/DynamicDiscs/videos/10159732918035654/
