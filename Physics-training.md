@@ -25,5 +25,6 @@ Seth Munsay - Disc Golf Strong
 ## Vide 3 - Glute bridge
 
 - feet separated at shoulder length
+- https://www.facebook.com/DynamicDiscs/videos/10159732918035654/
 
-![Glut bridge](https://www.facebook.com/DynamicDiscs/videos/10159732918035654/)
+![Glute bridge](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/files/images/glute-bridge.jpg)
