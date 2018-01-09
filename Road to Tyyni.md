@@ -17,3 +17,9 @@ Main focus should be put on field practise and putting, rather than playing casu
 ## Note
 
 At the time of writing (9.1.2018), I'm still in queue for a place in Tyyni. Currently at the top of the queue so my chances are good.
+
+## Training diary
+
+### Week 1 - 8.1.2018 - 14.1.2018
+
+
