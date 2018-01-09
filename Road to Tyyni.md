@@ -28,4 +28,9 @@ At the time of writing (9.1.2018), I'm still in queue for a place in Tyyni. Curr
 
 I've been reading about bracing and how the plant foot's ball should be on the ground when reaching back. Just before the actual throw begins, the plant foot's heel should be pressed down and only then should the actual throwing movement begin. When the heel is planted, you should try to brace the plant foot.
 
-With these in mind, this session's main agenda would be to focus on keeping the Line Of Play (LOP).
+With these in mind, this session's main agenda is to focus on keeping the Line Of Play (LOP) and try to throw the discs as close each others as possible.
+
+##### Retrospective
+
+How did it go? Write down a few line. Were I able to keep the agenda?
+
