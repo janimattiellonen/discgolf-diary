@@ -12,3 +12,8 @@ Main focus should be put on field practise and putting, rather than playing casu
 - if suitable, create main themes for each month
 - try to gather footage of your throws, at least a couple of times per month
 - try to build a consistent bag with as few (different) discs as possible, learn those discs in the bag well
+
+
+## Note
+
+At the time of writing (9.1.2018), I'm still in queue for a place in Tyyni. Currently at the top of the queue so my chances are good.
