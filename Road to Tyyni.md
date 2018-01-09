@@ -7,7 +7,7 @@ Main focus should be put on field practise and putting, rather than playing casu
 ## Current focus
 
 - practise putting, every week should contain at least one session of putting practise
-- accuracy and consistency over distance
+- accuracy and consistency over distance, I have a lot of issues with the disc darting to the left and right
 - create training programs for each week and try to stick to them
 - if suitable, create main themes for each month
 - try to gather footage of your throws, at least a couple of times per month
@@ -26,4 +26,6 @@ At the time of writing (9.1.2018), I'm still in queue for a place in Tyyni. Curr
 
 ##### Agenda
 
-Foo
+I've been reading about bracing and how the plant foot's ball should be on the ground when reaching back. Just before the actual throw begins, the plant foot's heel should be pressed down and only then should the actual throwing movement begin. When the heel is planted, you should try to brace the plant foot.
+
+With these in mind, this session's main agenda would be to focus on keeping the Line Of Play (LOP).
