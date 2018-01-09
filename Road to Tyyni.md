@@ -12,7 +12,7 @@ Main focus should be put on field practise and putting, rather than playing casu
 - if suitable, create main themes for each month
 - try to gather footage of your throws, at least a couple of times per month
 - try to build a consistent bag with as few (different) discs as possible, learn those discs in the bag well
-
+- try to maintain a training diary (somethat similar to last year's)
 
 ## Note
 
