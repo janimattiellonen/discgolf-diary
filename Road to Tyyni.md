@@ -22,7 +22,7 @@ At the time of writing (9.1.2018), I'm still in queue for a place in Tyyni. Curr
 
 ### Week 1 - 8.1.2018 - 14.1.2018
 
-#### Training day #1:
+#### Training day #1 - [insert date here]:
 
 ##### Agenda
 
@@ -30,7 +30,7 @@ I've been reading about bracing and how the plant foot's ball should be on the g
 
 With these in mind, this session's main agenda is to focus on keeping the Line Of Play (LOP) and try to throw the discs as close each others as possible.
 
-##### Retrospective
+##### In retrospective
 
 How did it go? Write down a few line. Were I able to keep the agenda?
 
