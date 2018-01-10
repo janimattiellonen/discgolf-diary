@@ -22,7 +22,7 @@ At the time of writing (9.1.2018), I'm still in queue for a place in Tyyni. Curr
 
 ### Week 1 - 8.1.2018 - 14.1.2018
 
-#### Training day #1 - [insert date here]:
+#### Training day #1 - 10.8.2018 (1h 30min):
 
 ##### Agenda
 
