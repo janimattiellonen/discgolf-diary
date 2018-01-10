@@ -32,5 +32,7 @@ With these in mind, this session's main agenda is to focus on keeping the Line O
 
 ##### In retrospective
 
-How did it go? Write down a few line. Were I able to keep the agenda?
+I tried focusing on planting of the plant foot's heel. It still feels akward and I get no power out of it. Need to focus more on this.
+
+Also, I do need to start filming some of my shots so that I can see what I'm doing wrong.
 
