@@ -20,7 +20,7 @@ At the time of writing (9.1.2018), I'm still in queue for a place in Tyyni. Curr
 
 ## Training diary
 
-### Week 1 - 8.1.2018 - 14.1.2018
+### Week 1: 8.1.2018 - 14.1.2018
 
 #### Training day #1 - 10.8.2018 (1h 30min):
 
@@ -35,4 +35,11 @@ With these in mind, this session's main agenda is to focus on keeping the Line O
 I tried focusing on planting of the plant foot's heel. It still feels akward and I get no power out of it. Need to focus more on this.
 
 Also, I do need to start filming some of my shots so that I can see what I'm doing wrong.
+
+
+### Week 2: 15.1 - 19.1.2018
+
+##### Agenda
+
+Throw certain lines (anhyzer, hyzer, flat) with a specific disc (repeat multiple times). Before throw, visualize the line and where you want the disc to land. 
 
