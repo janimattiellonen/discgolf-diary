@@ -22,7 +22,7 @@ At the time of writing (9.1.2018), I'm still in queue for a place in Tyyni. Curr
 
 ### Week 1: 8.1.2018 - 14.1.2018
 
-#### Training day #1 - 10.8.2018 (1h 30min):
+#### Training day #1 - 10.1.2018 (1h 30min):
 
 ##### Agenda
 
@@ -39,7 +39,12 @@ Also, I do need to start filming some of my shots so that I can see what I'm doi
 
 ### Week 2: 15.1 - 19.1.2018
 
+This week consisted of three days of disc golf: 1 round in Tali, 1 partial round in Tali (holes 1-11) and 1 dayof putting.
+
+#### Training day #2 - 18.1.2018 (45min):
+
 ##### Agenda
 
-Throw certain lines (anhyzer, hyzer, flat) with a specific disc (repeat multiple times). Before throw, visualize the line and where you want the disc to land. 
+Today was an extra day that I used solely for practising putting. I tried to focus on how I gripped the disc and how it felt. Was it a relaxed or tense grip? Mostly threw from less than 6m. The idea was to get a good feel with many holed putts rather than making long putts seldomly.
+
 
