@@ -37,7 +37,7 @@ I tried focusing on planting of the plant foot's heel. It still feels akward and
 Also, I do need to start filming some of my shots so that I can see what I'm doing wrong.
 
 
-### Week 2: 15.1 - 19.1.2018
+### Week 2: 15.1 - 21.1.2018
 
 This week consisted of three days of disc golf: 1 round in Tali, 1 partial round in Tali (holes 1-11) and 1 dayof putting.
 
@@ -47,4 +47,9 @@ This week consisted of three days of disc golf: 1 round in Tali, 1 partial round
 
 Today was an extra day that I used solely for practising putting. I tried to focus on how I gripped the disc and how it felt. Was it a relaxed or tense grip? Mostly threw from less than 6m. The idea was to get a good feel with many holed putts rather than making long putts seldomly.
 
+#### Training day #3 - 21.1.2018 (2h 30min)
+
+##### Agenda
+
+In Tali. I practised opening shots on hole 2. For the last remaining hour I practised putting using Perfect Putt 360, which is actually a very good way to gamify your putting and makes it much more fun. Played two rounds with scores 127 / 360 and 111 / 360. Played one more round but the app kept crashing so I lost scores for the third round. 
 
