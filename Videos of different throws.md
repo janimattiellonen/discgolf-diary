@@ -20,7 +20,7 @@ The idea is to gather a list of different shots that you can make in disc golf.
 
 ## Anhyzer
 
-
+[Simon Lizotte - European Open 2017 hole 12](https://youtu.be/6uloSilwcwU?t=570)
 
 ## Anhyzer roller
 
