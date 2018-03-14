@@ -53,3 +53,23 @@ Today was an extra day that I used solely for practising putting. I tried to foc
 
 In Tali. I practised opening shots on hole 2. For the last remaining hour I practised putting using Perfect Putt 360, which is actually a very good way to gamify your putting and makes it much more fun. Played two rounds with scores 127 / 360 and 111 / 360. Played one more round but the app kept crashing so I lost scores for the third round. 
 
+
+### 14.3.2018 (Home soccer field, 1h 30min)
+
+Going over to a more simplified reporting.
+
+The home field has been cleared of snow so I went there. It was somewhat windy and I started throwing in headwind and a lot of my discs turned abruptly to the right. After a while I walked to the other end of the field and started throwing in tailwind. Even if it is very useful to practise throwing in headwind, it still felt better throwing in tailwind and I felt much more productive and it was much more fun I stuck with it for the remaining of the time.
+
+Intial throw (in headwind) feld bad and aimless. The goals were all placed in a row in about the middle of the field with few spaces between the goals. When I started to aim a certain goals and certain sides of the goals, I felt my throws were much better and at time quite precise too. QUite a few throws actually flew past a narrow gap between two goals, where I actually aimed too.
+
+I threw all putters and midranges from a stand still stance. I had maybe 8 drivers too, which I threw using x-step.
+
+Today's take away would be to:
+- really visualize a flight path, use obstacles if possible
+- keep it slow
+
+
+
+
+
+
