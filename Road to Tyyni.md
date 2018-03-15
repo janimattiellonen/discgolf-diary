@@ -54,7 +54,7 @@ Today was an extra day that I used solely for practising putting. I tried to foc
 In Tali. I practised opening shots on hole 2. For the last remaining hour I practised putting using Perfect Putt 360, which is actually a very good way to gamify your putting and makes it much more fun. Played two rounds with scores 127 / 360 and 111 / 360. Played one more round but the app kept crashing so I lost scores for the third round. 
 
 
-### 14.3.2018 (Home soccer field, 1h 30min)
+### 14.3.2018 (Home field, 1h 30min)
 
 Going over to a more simplified reporting.
 
@@ -68,6 +68,13 @@ Today's take away would be to:
 - really visualize a flight path, use obstacles if possible
 - keep it slow
 
+### 15.3.2018 (Home field, 1h 30min)
+
+Today was mostly a copy of yesterday, with the addition of me filming some of my throws.
+
+I did pretty much the same type of exercises as yesterday. After warming up some, I tried to throw through a selected gap or side of the goal. It went quite well to day too. I alwasy ended each round with throwing some drivers. I actually had a quite good hit rate with the gaps too, even when using the x-step.
+
+I mostly throw in tail wind. I tried one round with headwind: I really must use stable discs when throwing in headwind. When I threw Roc3, MD3 and MD4, the shots went pretty well but when I threw more understable discs, they pretty much went too much right.
 
 
 
