@@ -77,6 +77,9 @@ I did pretty much the same type of exercises as yesterday. After warming up some
 I mostly throw in tail wind. I tried one round with headwind: I really must use stable discs when throwing in headwind. When I threw Roc3, MD3 and MD4, the shots went pretty well but when I threw more understable discs, they pretty much went too much right.
 
 
+### 12.4.2018 (Home field, 1h 30min)
+
+Today was calm and almost no wind. Main take away from today was that I really focused on the hit. That is, in focused on trying to turn my body first and then accelerate. I didn't get correct momvement out of mmy left foot, but I felt the shots going quite straight, albeit not that far. This got me the feeling that this is a good way to practise and that length of throws will increase as I train.
 
 
 
