@@ -79,7 +79,16 @@ I mostly throw in tail wind. I tried one round with headwind: I really must use 
 
 ### 12.4.2018 (Home field, 1h 30min)
 
-Today was calm and almost no wind. Main take away from today was that I really focused on the hit. That is, in focused on trying to turn my body first and then accelerate. I didn't get correct momvement out of mmy left foot, but I felt the shots going quite straight, albeit not that far. This got me the feeling that this is a good way to practise and that length of throws will increase as I train.
+Today was calm and almost no wind. Main take away from today was that I really focused on the hit. That is, in focused on trying to turn my body first and then accelerate. I didn't get correct movement out of my left foot, but I felt the shots going quite straight, albeit not that far. This got me the feeling that this is a good way to practise and that length of throws will increase as I train.
+
+### 7.4.2018 (Home field, 1h 30min)
+
+Today the wind was quite calm. I threw only in tailwind. Today I had no driverd at all, I kept throwing putters and midranges.
+
+I tried focusing on control shots and whether I could get a correct movement.
+
+Today's takeaway would be that when I kept my throwing hand a bit further away from my body, I got about 20m more in length.
+
 
 
 
