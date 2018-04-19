@@ -81,7 +81,7 @@ I mostly throw in tail wind. I tried one round with headwind: I really must use 
 
 Today was calm and almost no wind. Main take away from today was that I really focused on the hit. That is, in focused on trying to turn my body first and then accelerate. I didn't get correct movement out of my left foot, but I felt the shots going quite straight, albeit not that far. This got me the feeling that this is a good way to practise and that length of throws will increase as I train.
 
-### 7.4.2018 (Home field, 1h 30min)
+### 17.4.2018 (Home field, 1h 30min)
 
 Today the wind was quite calm. I threw only in tailwind. Today I had no driverd at all, I kept throwing putters and midranges.
 
@@ -89,6 +89,12 @@ I tried focusing on control shots and whether I could get a correct movement.
 
 Today's takeaway would be that when I kept my throwing hand a bit further away from my body, I got about 20m more in length.
 
+### 19.4.2018 (Tali rugby field, 2h 10min)
 
+I had planned to do my usual practises on my home field, but the weather was rainy, so I postponed it a couple of hours and used Tali's rugby field instead.
+
+I did my basic opening shot training routines, nothing bigger. Maybe the best takeaway of today is that when I had a smoother reachback+acceleration, it felt a bit better. This needs to be investigated more.
+
+In addition to basic open shots, I also practised sidearm. During the final leg of today's session, the sidearm throws felt better. 
 
 
