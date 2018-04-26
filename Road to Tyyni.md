@@ -97,4 +97,10 @@ I did my basic opening shot training routines, nothing bigger. Maybe the best ta
 
 In addition to basic open shots, I also practised sidearm. During the final leg of today's session, the sidearm throws felt better. 
 
+### 26.4.2018 (Kivikko, 1h 20min)
 
+Today was an early rise for me, as I had to be in Kivikko 5:45 in the morning). I played a round with another guy. Ended with +2 (both of us, actually).
+
+I played "ok", but made a couple of silly mistakes such as teeing off way to short, having too much hyzer (especially on the last whole we played (currently hole 1).
+
+One takeawea would be that, when playing a round (at least when playing alone), stop for a while and think about how to throw, how to stand etc). If needed, throw a couple extra shots every now and then to verify thoughts.
