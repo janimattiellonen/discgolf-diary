@@ -104,3 +104,7 @@ Today was an early rise for me, as I had to be in Kivikko 5:45 in the morning). 
 I played "ok", but made a couple of silly mistakes such as teeing off way to short, having too much hyzer (especially on the last whole we played (currently hole 1).
 
 One takeawea would be that, when playing a round (at least when playing alone), stop for a while and think about how to throw, how to stand etc). If needed, throw a couple extra shots every now and then to verify thoughts.
+
+### 14.5.2018 (Home field, 45min)
+
+Just a short monday session before work. Only mid ranges and putters. Again felt that if I kept the disc a bit further out of my body, I got straighter and longer shots.
