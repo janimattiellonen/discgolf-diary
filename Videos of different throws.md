@@ -14,6 +14,8 @@ The idea is to gather a list of different shots that you can make in disc golf.
 
 [Simon Lizotte - European Open 2017 hole 2](https://youtu.be/Cuw8bXzPcHI?t=385)
 
+[Paul McBeth - Glass Blown Open 2018, hole 1](https://youtu.be/cH2LZ8cubuc?t=229)
+
 ## Hyzer flip
 
 [Quick Tips - The Hyzer Flip](https://www.youtube.com/watch?v=x3K53OqEOZg)
