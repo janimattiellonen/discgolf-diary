@@ -35,6 +35,9 @@ The idea is to gather a list of different shots that you can make in disc golf.
 
 [Ricky Wysocki - Glass Blown Open 2018 hole 1](https://youtu.be/cH2LZ8cubuc?t=292)
 
+[Ricky Wysocki - Glass Blown Open 2018 hole 1](https://youtu.be/cH2LZ8cubuc?t=587)
+
+
 
 ### Jump putt
 
