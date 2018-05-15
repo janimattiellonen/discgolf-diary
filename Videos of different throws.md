@@ -34,3 +34,8 @@ The idea is to gather a list of different shots that you can make in disc golf.
 [Greg Barsby - European Open 2017 hole 2](https://youtu.be/Cuw8bXzPcHI?t=362)
 
 [Ricky Wysocki - Glass Blown Open 2018 hole 1](https://youtu.be/cH2LZ8cubuc?t=292)
+
+
+### Jump putt
+
+[Simon Lizotte - Glass Blown Open 2018 hole 2](https://youtu.be/cH2LZ8cubuc?t=307)
