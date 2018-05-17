@@ -94,7 +94,7 @@ It [appears](https://www.youtube.com/watch?v=rR6yuA2P5mQ) that the [pros](https:
 
 - [Paul McBeth tips](https://www.youtube.com/watch?v=U0gzNIRxRbY)
   - Nate Sexton and Paul McBeth goes through 5 major points
-- [Hershyzer Drill ](https://www.youtube.com/watch?v=ZlyD1ynQrh4)
+- [Hershyzer Wall Drill](https://www.youtube.com/watch?v=ZlyD1ynQrh4)
   - a drill that shows how you should lead with your butt
 
 ## Field work / training routines
