@@ -108,3 +108,9 @@ One takeawea would be that, when playing a round (at least when playing alone), 
 ### 14.5.2018 (Home field, 45min)
 
 Just a short monday session before work. Only mid ranges and putters. Again felt that if I kept the disc a bit further out of my body, I got straighter and longer shots.
+
+### 21.5.2018 (Home field, 1h 20min)
+
+Today I filmed some of my throws.
+
+I concentrated on doing straight shots and keeping my arm at the line of play (LOP) all the time. At the final leg of today's trainign session, I tried a simplified runup; without going a full x-step, I just stepped sideways. I felt that I got more length in the throws and still got consistent throws. This is something to try more.
