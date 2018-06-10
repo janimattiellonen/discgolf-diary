@@ -4,6 +4,10 @@ June 10th, 2018
 
 The purpose of this playbook is to act as a personal guide to Tali DGP.
 
+To make a successful round in Tali, caution and control trumps over long shots. To mee this means that slow down...
+
+I had a much better success rate on, say, hole 2, when I slowed down my movement during the tee shot; a lot more discs went past the triple mando (some even past the basket). 
+
 
 ## Hole 1: 216m, par 5
 
