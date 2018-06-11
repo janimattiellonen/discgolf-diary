@@ -17,6 +17,8 @@ Tee shot: something stable or slightly unstable. Mako3 or one of my worn M3:s (l
 
 Tee shot: Mako3, Truth or Buzzz SS. If windy, then slight hyzer. I tried with Roc3 but it faed left too much, too often to be of good use on this hole.
 
+If feeling lucky, you could also try a forehand skip shot with a Teebird. Before actually utilizing this shot, be sure to test it out with practise shots.
+
 Second shot: pretty much always a putter.
 
 ## Hole 3: 81m, par 3
@@ -47,3 +49,10 @@ Second shot: a putter should be enoguh but otherwise Mako3 or Roc3.
 
 Tee shot: a birdie is pretty much out of question at the moment. I would go with Mako3, Truth or Buzzz SS. Again, easier to make a controlled shot. Otherwise, Leopard3 or a Valkyrie might work too (a little bit higher risk of getting the disc too much on the right side. 
 
+
+## Hole 18: 83m, par 3
+
+Be careful on this hole; the left side OB comes really fast towards you. The hole seems to have a tail wind quite often so be careful with understable discs. My Roc3 goes OB left very often.
+
+Tee shot: not quite sure yet, what to utilize. Maybe Truth. If chosing Roc3, make sure you throw it flat or in a light anhyzer and keep the right side.
+ 
