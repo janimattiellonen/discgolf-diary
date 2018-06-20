@@ -122,3 +122,8 @@ Just a short monday session before work. Only mid ranges and putters. Again felt
 Today I filmed some of my throws.
 
 I concentrated on doing straight shots and keeping my arm at the line of play (LOP) all the time. At the final leg of today's trainign session, I tried a simplified runup; without going a full x-step, I just stepped sideways. I felt that I got more length in the throws and still got consistent throws. This is something to try more.
+
+
+## 20.6.2018 (Tali, 2h 20min)
+
+Started the morning with holes 1-6. Git frustrated with my throwing so I continued with opening shots from a certain pole towards the farther training basket. I quickly moved to hole 18. Today I set my personal distance record on hole 18. According to UDisc I threw something like 116m (about 6m short of the road at the end of hole 18).
