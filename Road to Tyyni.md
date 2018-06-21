@@ -10,7 +10,8 @@ What to do before the tournament starts.
 - make a list of clothes and other apparel you need
 - read through the PDGA rule book
 - study the courses, figure out what discs to keep in the bag
-- see if you can test some of the courses in advance
+- make sure all discs are legal and have a phone number / name
+- have a couple of pencils / pens
 - https://www.tyyni.com/competitor-info/ (see, which courses are used by MA3)
 - https://www.tyyni.com/event-schedule/ (event schedule)
 
