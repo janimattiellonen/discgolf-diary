@@ -17,6 +17,8 @@ What to do before the tournament starts.
 - https://www.tyyni.com/competitor-info/ (see, which courses are used by MA3)
 - https://www.tyyni.com/event-schedule/ (event schedule)
 - extra set of clothes (underwear, socks, t-shirt, pants)
+- towels
+- hats / gloves (in case it gets cold)
 
 Main focus should be put on field practise and putting, rather than playing casual rounds. 
 
