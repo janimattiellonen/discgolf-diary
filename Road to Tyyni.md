@@ -9,6 +9,7 @@ What to do before the tournament starts.
 - umbrella
 - make a list of clothes and other apparel you need
 - read through the PDGA rule book
+- bring the rulebook
 - study the courses, figure out what discs to keep in the bag
   - make sure the bags contains enough stable discs (handy if very windy situations)
   - have a couple of same discs (in case one is lost)
