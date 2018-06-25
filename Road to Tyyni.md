@@ -21,7 +21,10 @@ What to do before the tournament starts.
 - hats / gloves (in case it gets cold)
 - 2-3 markers in the bag (in case 1 or 2 are lost)
 - chair?
-- blister aid / bandaid
+- blister aid / band-aid
+- sunscreen
+- food/snack
+- water(!)
 
 Main focus should be put on field practise and putting, rather than playing casual rounds. 
 
