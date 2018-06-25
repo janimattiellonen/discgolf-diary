@@ -6,7 +6,7 @@ We have approximately 50 trainining sessions before Tyyni. That makes a 2 sessio
 
 What to do before the tournament starts.
 
-- get a decent umbrella
+- umbrella
 - make a list of clothes and other apparel you need
 - read through the PDGA rule book
 - study the courses, figure out what discs to keep in the bag
@@ -16,6 +16,7 @@ What to do before the tournament starts.
 - have a couple of pencils / pens (maybe a plastic cover for the score card)
 - https://www.tyyni.com/competitor-info/ (see, which courses are used by MA3)
 - https://www.tyyni.com/event-schedule/ (event schedule)
+- extra set of clothes (underwear, socks, t-shirt, pants)
 
 Main focus should be put on field practise and putting, rather than playing casual rounds. 
 
