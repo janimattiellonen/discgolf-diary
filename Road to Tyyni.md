@@ -20,6 +20,7 @@ What to do before the tournament starts.
 - towels
 - hats / gloves (in case it gets cold)
 - 2-3 markers in the bag (in case 1 or 2 are lost)
+- chair?
 
 Main focus should be put on field practise and putting, rather than playing casual rounds. 
 
