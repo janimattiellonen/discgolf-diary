@@ -13,7 +13,7 @@ What to do before the tournament starts.
   - make sure the bags contains enough stable discs (handy if very windy situations)
   - have a couple of same discs (in case one is lost)
 - make sure all discs are legal and have a phone number / name
-- have a couple of pencils / pens
+- have a couple of pencils / pens (maybe a plastic cover for the score card)
 - https://www.tyyni.com/competitor-info/ (see, which courses are used by MA3)
 - https://www.tyyni.com/event-schedule/ (event schedule)
 
