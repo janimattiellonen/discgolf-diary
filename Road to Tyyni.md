@@ -19,6 +19,24 @@ What to do before the tournament starts.
 
 Main focus should be put on field practise and putting, rather than playing casual rounds. 
 
+## Tyyni Disc setup
+
+The following discs should be in the bag:
+
+- Orange Teebird
+- Green Teebird
+- Teebird 3
+- Valkyrie
+- Sidewinder
+- Leopard3
+- TL3 (Fraktio logo)
+- TL3
+- PA1
+- 2 PA3
+- 2 Mako3
+- 2 Roc3 (orange and Punisher)
+
+
 ## Current focus
 
 - practise putting, every week should contain at least one session of putting practise
