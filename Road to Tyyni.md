@@ -35,6 +35,7 @@ The following discs should be in the bag:
 - 2 PA3
 - 2 Mako3
 - 2 Roc3 (orange and Punisher)
+- Truth (orange)
 
 
 ## Current focus
