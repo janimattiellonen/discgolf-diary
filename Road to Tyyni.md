@@ -159,3 +159,19 @@ I concentrated on doing straight shots and keeping my arm at the line of play (L
 ## 20.6.2018 (Tali, 2h 20min)
 
 Started the morning with holes 1-6. Git frustrated with my throwing so I continued with opening shots from a certain pole towards the farther training basket. I quickly moved to hole 18. Today I set my personal distance record on hole 18. According to UDisc I threw something like 116m (about 6m short of the road at the end of hole 18).
+
+## 26.6.2018 (Home field, 1h)
+
+Today I bagged the bag with discs I plan to use in Tyyni. Nothing else. Today's agenda was to get a grip of how the discs fly and try to memorixe what discs to use in what situations.
+
+I also tried to throw forehand shots. Good forehand discs today were:
+
+- Truth
+- Roc3s
+- TL3s
+- Valkyries
+- Teebirds
+
+The Teebird3 flight path was more steeper than the other Teebirds and turned right more quickly. The TL3s flew a bit more straighter, but still bit a right turn.
+
+
