@@ -4,8 +4,7 @@ Year 2019 edition
 
 The purpose of this playbook is to act as a personal guide to Tali DGP.
 
-Last year's playbook
-[Tali playbook 2018](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/Tali%20playbook.md)
+Last year's [playbook](https://github.com/janimattiellonen/frisbeegolf-paivakirja-2017/blob/master/Tali%20playbook.md)
 
 ## Hole 1: 216m, par 5
 
