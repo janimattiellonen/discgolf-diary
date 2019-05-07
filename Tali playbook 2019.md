@@ -34,6 +34,8 @@ Tee shot: Leopard3 or Valkyrie
 
 Tee shot: Leopard3 or Valkyrie if not too windy. If wanting to play very safe, pink mako3.
 
+This year I've had multiple almost pin high tee shots with Valkyrie and Leopard 3, that fade a little bit to the left.
+
 ## Hole 8: 83m, par 3
 
 Tee shot: Lila/blue Mako3.
