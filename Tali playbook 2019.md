@@ -34,7 +34,7 @@ Tee shot: Leopard3 or Valkyrie
 
 Tee shot: Leopard3 or Valkyrie if not too windy. If wanting to play very safe, pink mako3.
 
-## Hole 18: 83m, par 3
+## Hole 8: 83m, par 3
 
 Tee shot: Lila/blue Mako3.
 
