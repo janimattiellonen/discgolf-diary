@@ -7,7 +7,7 @@ The purpose of this playbook is to act as a personal guide to Tali DGP.
 Last year's playbook
 
 
-[Tali playbook (2018)](Tali playbook.md)
+[Tali playbook 2018](Tali playbook.md)
 
 ## Hole 1: 216m, par 5
 
