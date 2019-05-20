@@ -42,13 +42,23 @@ Tee shot: Lila/blue Mako3.
 
 ## Hole 9: 62m, par 3
 
+Tee shot: Harp (if heavy head wind). Otherwise, pa3.
+
 ## Hole 10: 170m, par 4
+
+Tee shot: Valkyrie or Leopard3
 
 ## Hole 11: 108m, par 3
 
+Tee shot: must be careful with head winds. Safe bet is Teebird and hyzer.  
+
 ## Hole 12: 82m, par 3
 
+Tee shot: Teebird.
+
 ## Hole 13: 127m, par 3
+
+Tee shot: If no head wind, then Valkyrie on the left side, falt or very slight anhyzer.
 
 ## Hole 14: 131m, par 3
 
@@ -59,6 +69,8 @@ Tee shot: Lila/blue Mako3.
 ## Hole 17: 205m, par 4
 
 ## Hole 18: 83m, par 3
+
+Tee shot: Roc3 in a slight anhyzer.
 
 
 
