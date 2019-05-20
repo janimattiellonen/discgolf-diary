@@ -40,5 +40,30 @@ This year I've had multiple almost pin high tee shots with Valkyrie and Leopard 
 
 Tee shot: Lila/blue Mako3.
 
+## Hole 9: 62m, par 3
+
+## Hole 10: 170m, par 4
+
+## Hole 11: 108m, par 3
+
+## Hole 12: 82m, par 3
+
+## Hole 13: 127m, par 3
+
+## Hole 14: 131m, par 3
+
+## Hole 15: 75m, par 3
+
+## Hole 16: 72m, par 3
+
+## Hole 17: 205m, par 4
+
+## Hole 18: 83m, par 3
+
+
+
+
+
+
 
  
