@@ -38,11 +38,11 @@ This year I've had multiple almost pin high tee shots with Valkyrie and Leopard 
 
 ## Hole 8: 83m, par 3
 
-Tee shot: Lila/blue Mako3.
+Tee shot: Pink (newer) Mako3 in a slight anhyzer line.
 
 ## Hole 9: 62m, par 3
 
-Tee shot: Harp (if heavy head wind). Otherwise, pa3.
+Tee shot: Harp (if heavy head wind). Otherwise, pa3 or mercy.
 
 ## Hole 10: 170m, par 4
 
@@ -62,15 +62,23 @@ Tee shot: If no head wind, then Valkyrie on the left side, falt or very slight a
 
 ## Hole 14: 131m, par 3
 
+Tee shot: Valkyrie in a slight anhyzer, if not too much head wind. If head wind, then maybe orange Teebird in a hyzer line.
+
 ## Hole 15: 75m, par 3
+
+Tee shot: Leopard3.
 
 ## Hole 16: 72m, par 3
 
+Tee shot: Mercy (putter), flat or slight anhyzer. Don't throw too fast. This hole is easilly over shot.
+
 ## Hole 17: 205m, par 4
+
+Tee shot: Valkyrie or Leopard3.
 
 ## Hole 18: 83m, par 3
 
-Tee shot: Roc3 in a slight anhyzer.
+Tee shot: Pink (newer one), Mako3 in slight hyzer line. If very heavy head wind, than maybe Roc3 in an anhyzer line.
 
 
 
