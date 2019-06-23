@@ -43,3 +43,23 @@
 - 3 Mako3 (1 beaten pink, 1 newer pink, 1 blue)
 - 2 Roc3 (both XXL stamped discs)
 - Truth (orange)
+
+## Courses
+- Kartano
+- Kivikko
+- Keinukallio
+
+https://www.tyyni.com/courses/
+
+### Kartano
+
+Wasn't too hard last year (even if score said otherwise), might not need a visit.
+
+### Kivikko
+
+"Home course". Same layout as usual, only in different order. Probably just need to visualize the holes and make a plan forthem. Might not need a visit.
+
+### Keinukallio
+
+A totally new layout with new holes, some same holes from laste Tyyni. Needs to be visited.
+
