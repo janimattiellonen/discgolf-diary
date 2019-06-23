@@ -1,5 +1,29 @@
 # Tyyni 2019
 
+## Checklist
+
+
+- umbrella
+- make a list of clothes and other apparel you need
+- read through the PDGA rule book
+- bring the rulebook
+- study the courses, figure out what discs to keep in the bag
+  - make sure the bags contains enough stable discs (handy if very windy situations)
+  - have a couple of same discs (in case one is lost)
+- make sure all discs are legal and have a phone number / name
+- have a couple of pencils / pens (maybe a plastic cover for the score card)
+- https://www.tyyni.com/competitor-info/ (see, which courses are used by MA3)
+- https://www.tyyni.com/event-schedule/ (event schedule)
+- extra set of clothes (underwear, socks, t-shirt, pants)
+- towels
+- hats / gloves (in case it gets cold)
+- 2-3 markers in the bag (in case 1 or 2 are lost)
+- chair?
+- blister aid / band-aid
+- sunscreen
+- food/snack
+- water(!)
+
 ## Tyyni Disc setup
 
 ### The following discs should be in the bag:
