@@ -36,6 +36,7 @@
 - Sidewinder
 - 2 Leopard3 (1 beaten yellowish and 1 new white)
 - 2 TL3 (1 with Fraktio logo, 1 pink)
+- 1 GStar TL3 (yellow one, seemsto be good with forehand shots)
 - TL (Pink)
 - PA1
 - 2 Harps
@@ -43,6 +44,8 @@
 - 3 Mako3 (1 beaten pink, 1 newer pink, 1 blue)
 - 2 Roc3 (both XXL stamped discs)
 - Truth (orange)
+
+Got back a GStar TL3 and tried some forehands with it on my sand soccer field. Seems like a very good forehand driver. 
 
 ## Courses
 - Kartano
