@@ -130,6 +130,11 @@ Tee shot: Tl3, slight hyzer. Maybe valkyrie.
 
 Tee shot: Low ceiling. Last year I got 5 on this hole. Mabe newer pink Mako3.
 
+
+### Kivikko
+
+"Home course". Same layout as usual, only in different order. Probably just need to visualize the holes and make a plan forthem. Might not need a visit.
+
 #### Playbook
 
 1) Par 3, 115m
@@ -204,18 +209,9 @@ Tee shot: Orange Teebird.
 
 Tee shot: Second water hole, final hole! If feeling good, orange Teebird, hyzer. Or maybe TL3, hyzer.
 
-
-### Kivikko
-
-"Home course". Same layout as usual, only in different order. Probably just need to visualize the holes and make a plan forthem. Might not need a visit.
-
-#### Playbook
-
-1)
-
 ### Keinukallio
 
-A totally new layout with new holes, some same holes from laste Tyyni. Needs to be visited.
+A totally new layout with new holes, some same holes from last Tyyni. Needs to be visited.
 
 
 
