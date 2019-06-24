@@ -79,31 +79,31 @@ Tee shot: Beat in pink Mako3 or Leopard3
 
 5) Par 4, 106m
 
-Tee shot: newer pink Mako3, slight hyzer, maybe beat in Mako3 in hyzer. First shot should finish at the back wall.
+Tee shot: newer pink Mako3, slight hyzer, maybe beat in Mako3 in hyzer. First shot should finish at the back wall. Then a pretty easy up shot towards the basket.
 
 6) Par 4, 127m
 
-Tee shot: 
+Tee shot: Leopard3 or beat in pink Mako3. At least something understable.
 
 7) Par 3, 96m
 
-Tee shot: 
+Tee shot: Maybe newer pink Mako3 in hyzer. Beware of the left side OB!
 
 8) Par 3, 91m
 
-Tee shot: 
+Tee shot: Valkyrie. Maybe TL3 if inds are tricky.
 
 9) Par 3, 108m
 
-Tee shot: 
+Tee shot: Leopard3 or Valkyrie. Maybe beat in pink mako3.
 
 10) Par 3, 70m
 
-Tee shot: 
+Tee shot: Roc3. If heave haed winds, then maybe orange Teebird.
 
 11) Par 3, 113m
 
-Tee shot: 
+Tee shot: Roc3, pretty good hyzer
 
 12) Par 3, 89m
 
