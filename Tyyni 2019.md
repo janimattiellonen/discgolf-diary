@@ -58,43 +58,77 @@ https://www.tyyni.com/courses/
 
 Wasn't too hard last year (even if score said otherwise), might not need a visit.
 
-1) Par 3, 
+1) Par 3, 60m
 
-2) Par 3,
+Tee shot: Narrow gap, first shot of the tournament. Watch the left side bushes. Putter or bat in pink Mako3.
 
-3) Par 3,
+2) Par 3, 85m
 
-4) Par 3,
+Tee shot: Narrow path. Beat in pink mako3, hyzer.
 
-5) Par 3,
+3) Par 3, 100m
 
-6) Par 3,
+Tee shot: TL3, hyzer.
 
-7) Par 3,
+4) Par 3, 110m
 
-8) Par 3,
+Tee shot: Valkyrie, flat.
 
-9) Par 3,
+5) Par 3, 110m
 
-10) Par 3,
+Tee shot: Valkyrie, flat or slight anhyzer
 
-11) Par 3,
+6) Par 3, 80m
 
-12) Par 3,
+Tee shot: Maybe beat in pink Mako3, hyzer. Hard to say.
 
-13) Par 3,
+7) Par 3, 65m
 
-14) Par 3,
+Tee shot: Beat in pink Mako3, slight anhyzer.
 
-15) Par 3,
+8) Par 3, 130m
 
-16) Par 3, 
+Tee shot: Orange Teebird, hyzer
 
-17) Par 3, 
+9) Par 3, 80m
 
-18) Par 3,
+Tee shot: Beat in pink Mako3
 
+10) Par 3, 110m
 
+Tee shot: Newer pink Mako3, slight hyzer, downhill I believe.
+
+11) Par 3, 80m
+
+Tee shot: not sure yet
+
+12) Par 3, 80m
+
+Tee shot: Roc3
+
+13) Par 3, 80m
+
+Tee shot: Orange Teebird, hyzer or maybe TL3 hyzer
+
+14) Par 3, 75m
+
+Tee shot: Newer pink Mako3, hyzer
+
+15) Par 3, 105m
+
+Tee shot: Not sure yet
+
+16) Par 3, 110m
+
+Tee shot: Not sure yet
+
+17) Par 3, 90m
+
+Tee shot: Tl3, slight hyzer. Maybe valkyrie.
+
+18) Par 3, 68m
+
+Tee shot: Low ceiling. Last year I got 5 on this hole. Mabe newer pink Mako3.
 
 #### Playbook
 
