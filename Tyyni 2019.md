@@ -58,6 +58,43 @@ https://www.tyyni.com/courses/
 
 Wasn't too hard last year (even if score said otherwise), might not need a visit.
 
+1) Par 3, 
+
+2) Par 3,
+
+3) Par 3,
+
+4) Par 3,
+
+5) Par 3,
+
+6) Par 3,
+
+7) Par 3,
+
+8) Par 3,
+
+9) Par 3,
+
+10) Par 3,
+
+11) Par 3,
+
+12) Par 3,
+
+13) Par 3,
+
+14) Par 3,
+
+15) Par 3,
+
+16) Par 3, 
+
+17) Par 3, 
+
+18) Par 3,
+
+
 
 #### Playbook
 
