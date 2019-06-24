@@ -67,19 +67,19 @@ Tee shot: TL3 or orange Teebird, if heavy head wind
 
 2) Par 3, 81m  
 
-Tee shot: 
+Tee shot: Valkyrie, flat or slight anhyzer. If heavy head wind, use TL3
 
 3) Par 3, 100m  
 
-Tee shot: 
+Tee shot: Valkyrie or Leopard3
 
 4) Par 3, 96m
 
-Tee shot: 
+Tee shot: Beat in pink Mako3 or Leopard3
 
 5) Par 4, 106m
 
-Tee shot: 
+Tee shot: newer pink Mako3, slight hyzer, maybe beat in Mako3 in hyzer. First shot should finish at the back wall.
 
 6) Par 4, 127m
 
