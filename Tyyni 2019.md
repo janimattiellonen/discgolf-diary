@@ -48,7 +48,7 @@
 Got back a GStar TL3 and tried some forehands with it on my sand soccer field. Seems like a very good forehand driver. 
 
 ## Courses
-- Kartano
+- Kartano (Tee time: 9:00)
 - Kivikko
 - Keinukallio
 
