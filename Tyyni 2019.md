@@ -22,7 +22,7 @@
 - blister aid / band-aid
 - sunscreen
 - food/snack
-- water(!)
+- water, keep a 1.5l bottle in the bag and more water in the car
 
 ## Tyyni Disc setup
 
