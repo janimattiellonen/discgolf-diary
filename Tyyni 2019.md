@@ -103,35 +103,35 @@ Tee shot: Roc3. If heave haed winds, then maybe orange Teebird.
 
 11) Par 3, 113m
 
-Tee shot: Roc3, pretty good hyzer
+Tee shot: Roc3, pretty good hyzer.
 
 12) Par 3, 89m
 
-Tee shot: 
+Tee shot: First water hole, if feeling good, orange Teebird, hyzer. Maybe TL3, hyzer.
 
 13) Par 3, 50m
 
-Tee shot: 
+Tee shot: Short hole! A putter, Mercy?
 
 14) Par 3, 54m
 
-Tee shot: 
+Tee shot: Another short hole. Maybe Mercy again.
 
 15) Par 3, 66m
 
-Tee shot: 
+Tee shot: newer pink Mako3, or a Roc3.
 
 16) Par 3, 55m
 
-Tee shot: 
+Tee shot: Narrow gap! Beat in pink Mako3.
 
 17) Par 3, 72m
 
-Tee shot: 
+Tee shot: Orange Teebird.
 
 18) Par 3, 90m
 
-Tee shot: 
+Tee shot: Second water hole, final hole! If feeling good, orange Teebird, hyzer. Or maybe TL3, hyzer.
 
 
 ### Kivikko
