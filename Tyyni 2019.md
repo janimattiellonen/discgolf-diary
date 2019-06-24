@@ -58,11 +58,95 @@ https://www.tyyni.com/courses/
 
 Wasn't too hard last year (even if score said otherwise), might not need a visit.
 
+
+#### Playbook
+
+1) Par 3, 115m
+
+Tee shot: TL3 or orange Teebird, if heavy head wind
+
+2) Par 3, 81m  
+
+Tee shot: 
+
+3) Par 3, 100m  
+
+Tee shot: 
+
+4) Par 3, 96m
+
+Tee shot: 
+
+5) Par 4, 106m
+
+Tee shot: 
+
+6) Par 4, 127m
+
+Tee shot: 
+
+7) Par 3, 96m
+
+Tee shot: 
+
+8) Par 3, 91m
+
+Tee shot: 
+
+9) Par 3, 108m
+
+Tee shot: 
+
+10) Par 3, 70m
+
+Tee shot: 
+
+11) Par 3, 113m
+
+Tee shot: 
+
+12) Par 3, 89m
+
+Tee shot: 
+
+13) Par 3, 50m
+
+Tee shot: 
+
+14) Par 3, 54m
+
+Tee shot: 
+
+15) Par 3, 66m
+
+Tee shot: 
+
+16) Par 3, 55m
+
+Tee shot: 
+
+17) Par 3, 72m
+
+Tee shot: 
+
+18) Par 3, 90m
+
+Tee shot: 
+
+
 ### Kivikko
 
 "Home course". Same layout as usual, only in different order. Probably just need to visualize the holes and make a plan forthem. Might not need a visit.
 
+#### Playbook
+
+1)
+
 ### Keinukallio
 
 A totally new layout with new holes, some same holes from laste Tyyni. Needs to be visited.
+
+
+
+
 
