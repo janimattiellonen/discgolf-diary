@@ -213,6 +213,75 @@ Tee shot: Second water hole, final hole! If feeling good, orange Teebird, hyzer.
 
 A totally new layout with new holes, some same holes from last Tyyni. Needs to be visited.
 
+Väylä 1:
+
+Avaus: TL3, flattinä
+
+Jos enemmän vasemmassa laidassa niin TL3 hieman antsassa. Jos enemmän oikealla, niin TL3 tai Leopard3/Valkyrie.
+
+Väylä 2:
+
+Avaus: teen vasenta laitaa myöten anhyzer vanhalla pinkillä mako3:lla. Muutama puu alussa, jotka voivat aiheuttaa ongelmia.
+
+Väylä 3:
+
+Avaus: joku mako3 hyssessä
+
+Väylä 4:
+
+Avaus: jos tyyntä niin hysselinjassa vanha pinkki mako3 tai joku muu mako3.
+
+Väylä 5:
+
+Avaus: TL3 lievässä hyssessä oikeaa laitaa pitkin.
+
+Väylä 6:
+
+Avaus: TL3 tai valkyrie tai Leopard3
+
+Väylä 7:
+
+Avaus: uudempi pinkki mako3 tai sininen mako3. Jos tuulta niin ehkä Roc3.
+
+Väylä 8:
+
+Avaus: TL3 tai oranssi Teebird
+
+Väylä 9:
+
+Avaus: pinkki TL tai TL3
+
+Väylä 10:
+
+Avaus: Leopard3 tai vanha pinkki mako3
+
+Väylä 11:
+
+Avaus: mercy. Maltti, kapea ja lyhyt väylä
+
+Väylä 12:
+
+Avaus: valkyrie annukassa tai Leopard3. Mahdollisesti Pinkki TL/TL3/oranssi teebird forena. Ei vihreä Teebird.
+
+Väylä 13:
+
+Avaus: joku mako3
+
+Väylä 14:
+
+Avaus: kapea pitkä pilli. En tiedä mitä heittää
+
+Väylä 15:
+
+Avaus: valkyrie lievässä annukassa tai sit TL3
+
+Väylä 16:
+
+Avaus: joku mako3
+
+Väylä 17:
+
+Avaus: TL3
 
 
 
