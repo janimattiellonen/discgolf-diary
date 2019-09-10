@@ -78,7 +78,7 @@ Tee shot: Valkyrie or Leopard3.
 
 ## Hole 18: 83m, par 3
 
-Tee shot: Pink (newer one), Mako3 in slight hyzer line. If very heavy head wind, than maybe Roc3 in an anhyzer line.
+Tee shot: Pink (newer one), Mako3 in slight hyzer line. If very heavy head wind, than maybe Roc3 in an anhyzer line. This hole is very easy to OB. Left side is skippy, so keep the disc to the rigth side as long as possible.
 
 
 
