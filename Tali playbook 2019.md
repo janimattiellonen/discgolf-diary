@@ -8,7 +8,7 @@ Last year's [playbook](https://github.com/janimattiellonen/frisbeegolf-paivakirj
 
 ## Hole 1: 216m, par 5
 
-Tee shot: pink mako3.
+Tee shot: mercy or pink mako3. 
 
 ## Hole 2: 72m, par 3
 
@@ -42,7 +42,7 @@ Tee shot: Pink (newer) Mako3 in a slight anhyzer line.
 
 ## Hole 9: 62m, par 3
 
-Tee shot: Harp (if heavy head wind). Otherwise, pa3 or mercy.
+Tee shot: Harp (if heavy head wind). Otherwise, mercy.
 
 ## Hole 10: 170m, par 4
 
@@ -50,7 +50,7 @@ Tee shot: Valkyrie or Leopard3
 
 ## Hole 11: 108m, par 3
 
-Tee shot: must be careful with head winds. Safe bet is Teebird and hyzer.  
+Tee shot: must be careful with head winds. Safe bet is Teebird and hyzer. Now with slightly improved tehnique, I can throw the orange teebird a buit more flat, or even with sligth anhyzer.  
 
 ## Hole 12: 82m, par 3
 
@@ -58,7 +58,7 @@ Tee shot: Teebird.
 
 ## Hole 13: 127m, par 3
 
-Tee shot: If no head wind, then Valkyrie on the left side, falt or very slight anhyzer.
+Tee shot: old beat-up white sidewinder in slight hyzer; it will flip over and turn to right. If very heave head wind, teebird.
 
 ## Hole 14: 131m, par 3
 
@@ -66,11 +66,11 @@ Tee shot: Valkyrie in a slight anhyzer, if not too much head wind. If head wind,
 
 ## Hole 15: 75m, par 3
 
-Tee shot: Leopard3.
+Tee shot: yellow beatup Leopard3 in anhyzer.
 
 ## Hole 16: 72m, par 3
 
-Tee shot: Mercy (putter), flat or slight anhyzer. Don't throw too fast. This hole is easilly over shot.
+Tee shot: Mercy (putter), flat or slight anhyzer. Don't throw too fast. This hole is easy to throw long.
 
 ## Hole 17: 205m, par 4
 
