@@ -25,3 +25,8 @@ Useimmat vihannekset ja hedelmät, täysjyväviljatuotteet, kaura, ohra, ruskea 
 
 ## Glykeeminen kuorma (GK)
 
+TBD
+
+## GI-tietokanta
+
+http://www.glycemicindex.com/foodSearch.php
