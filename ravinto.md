@@ -37,3 +37,9 @@ http://www.glycemicindex.com/foodSearch.php
 ## Muita lähteitä
 
 - https://foodstruct.com
+
+## Sekalaista
+
+"Cooking methods - the more cooked, or over cooked, a food, the more its cellular structure is broken, with a tendency for it to digest quickly and raise blood glucose more"
+
+-- https://en.wikipedia.org/wiki/Glycemic_index
