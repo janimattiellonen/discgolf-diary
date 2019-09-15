@@ -4,7 +4,7 @@
 - liaan suuri kortisolitaso ei ole hyvä (kortisoli == "stressihormoni")
 
 
-## Glykeeminen indeksi
+## Glykeeminen indeksi (GI)
 
 
 "Glykeeminen indeksi on luku, joka kertoo, kuinka nopeasti erilaiset hiilihydraatit - nopeat ja hitaat - imeytyvät suolistosta vereen. GI kertoo siis myös kuinka paljon ne kohottavat verensokeria.
@@ -22,3 +22,6 @@ Banaani, perunat, ranskanperunat, sipsit, valkoinen leipä pulla, valkoinen riis
 Matala GI
 
 Useimmat vihannekset ja hedelmät, täysjyväviljatuotteet, kaura, ohra, ruskea riisi, parsakaali, couscous.
+
+## Glykeeminen kuorma (GK)
+
