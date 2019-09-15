@@ -1,4 +1,4 @@
-# issues
+# Issues
 
 Here is a list of issue I'm having. These are things I should concentrate on fixing, one at a time. They are not listed in any specific order.
 
