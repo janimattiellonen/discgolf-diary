@@ -27,6 +27,13 @@ Useimmat vihannekset ja hedelmät, täysjyväviljatuotteet, kaura, ohra, ruskea 
 
 TBD
 
+
+
 ## GI-tietokanta
 
 http://www.glycemicindex.com/foodSearch.php
+
+
+## Muita lähteitä
+
+- https://foodstruct.com
