@@ -14,3 +14,11 @@ Keski 56-69
 Korkea 70 tai yli"
 
 -- http://www.tritolonen.fi/artikkelit/52-glykemiaindeksi-gi-ja-kuorma-gk
+
+Korkea GI
+
+Banaani, perunat, ranskanperunat, sipsit, valkoinen leipä pulla, valkoinen riisi, monet aamiaismurot, spagetti, kolajuomat ja muut makeutetut virvoitusjuomat, sokeri
+
+Matala GI
+
+Useimmat vihannekset ja hedelmät, täysjyväviljatuotteet, kaura, ohra, ruskea riisi, parsakaali, couscous.
