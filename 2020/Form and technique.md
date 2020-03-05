@@ -30,6 +30,11 @@ If you need to throw downwards, then try to keep your reachback below your colla
 
 - [A different way of looking at nose angle.](https://youtu.be/-DE455cUrIU)
 
+
+### What to try
+
+Start with a low reach back and then tilt your wrist extremly and see what happens. Then gradully lessen the tilt of the wris throw again and see what happens.
+
 ## Videos
 
 - [The secret to disc golf timing: It's all in the reachback!](https://youtu.be/8p-d0do3t9s)
