@@ -2,16 +2,15 @@
 
 Things that I believe in. Year 2020 update.
 
-## Reachback
+## Reach back
 
-- keep your reachback low (hyzer shots)
+- keep your reach back low (hyzer shots)
 - wide reachback
 
 
 ## Nose angle
 
 Basically this means that nose angle is relative to the air flow. So a disc flying in and upwards angle is not automatically a "nose up".
-
 
 Nose up
 
@@ -21,8 +20,13 @@ Nose down
 
 The disc is flying at the most aerodynamic angle relative to the direction the disc is flying.
 
+### Common issues
 
-Source: [A different way of looking at nose angle.](https://youtu.be/-DE455cUrIU)
+If you start with a high reach bach, then the path of the disc is aimed at the ground a few feet before you. This will force you to throw the disc with a nose up angle (or adjusting your angle, which will cause a dip in the swinging motion <- my comment). Start with a lower reach back to prevent dipping or nose up angles.
+
+### Source
+
+- [A different way of looking at nose angle.](https://youtu.be/-DE455cUrIU)
 
 ## Videos
 
