@@ -10,7 +10,7 @@ Things that I believe in. Year 2020 update.
 
 ## Nose angle
 
-Basically this means that nose angle is relative to the air flow.
+Basically this means that nose angle is relative to the air flow. So a disc flying in and upwards angle is not automatically a "nose up".
 
 
 Nose up
