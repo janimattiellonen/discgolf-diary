@@ -8,7 +8,21 @@ Things that I believe in. Year 2020 update.
 - wide reachback
 
 
+## Nose angle
 
+Basically this means that nose angle is relative to the air flow.
+
+
+Nose up
+
+When the back of the disc is tilted back relative to the direction the disc is flying. In a nose up angle, the bottom part of the disc creates drag, which will result in slower speed and quicker fade to the left (RHBH throws).
+
+Nose down
+
+The disc is flying at the most aerodynamic angle relative to the direction the disc is flying.
+
+
+- [A different way of looking at nose angle.](https://youtu.be/-DE455cUrIU)
 
 ## Videos
 
