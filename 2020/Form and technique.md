@@ -22,7 +22,7 @@ Nose down
 The disc is flying at the most aerodynamic angle relative to the direction the disc is flying.
 
 
-- [A different way of looking at nose angle.](https://youtu.be/-DE455cUrIU)
+Source: [A different way of looking at nose angle.](https://youtu.be/-DE455cUrIU)
 
 ## Videos
 
