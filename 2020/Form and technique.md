@@ -24,6 +24,8 @@ The disc is flying at the most aerodynamic angle relative to the direction the d
 
 If you start with a high reach bach, then the path of the disc is aimed at the ground a few feet before you. This will force you to throw the disc with a nose up angle (or adjusting your angle, which will cause a dip in the swinging motion <- my comment). Start with a lower reach back to prevent dipping or nose up angles.
 
+If you need to throw downwards, then try to keep your reachback below your collar bones.
+
 ### Source
 
 - [A different way of looking at nose angle.](https://youtu.be/-DE455cUrIU)
