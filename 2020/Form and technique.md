@@ -2,9 +2,9 @@
 
 Things that I believe in. Year 2020 update.
 
-## Reach back
+## Reachback
 
-- keep your reach back low (hyzer shots)
+- keep your reachback low (hyzer shots)
 - wide reachback
 
 
@@ -22,9 +22,9 @@ The disc is flying at the most aerodynamic angle relative to the direction the d
 
 ### Common issues
 
-If you start with a high reach bach, then the path of the disc is aimed at the ground a few feet before you. This will force you to throw the disc with a nose up angle (or adjusting your angle, which will cause a dip in the swinging motion <- my comment). Start with a lower reach back to prevent dipping or nose up angles.
+If you start with a high reachbach, then the path of the disc is aimed at the ground a few feet before you. This will force you to throw the disc with a nose up angle (or adjusting your angle, which will cause a dip in the swinging motion <- my comment). Start with a lower reachback to prevent dipping or nose up angles.
 
-If you need to throw downwards, then try to keep your reachback below your collar bones.
+If you need to throw downwards, then try to keep your back below your collar bones.
 
 ### Source
 
@@ -33,8 +33,8 @@ If you need to throw downwards, then try to keep your reachback below your colla
 
 ### What to try
 
-- try with low reach back, if throwing hyzer shots
-- start with a low reach back and then tilt your wrist extremly and see what happens. Then gradully lessen the tilt of the wris throw again and see what happens.
+- try with low reachback, if throwing hyzer shots
+- start with a low reachback and then tilt your wrist extremly and see what happens. Then gradully lessen the tilt of the wris throw again and see what happens.
 
 ## Videos
 
