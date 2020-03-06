@@ -33,7 +33,8 @@ If you need to throw downwards, then try to keep your reachback below your colla
 
 ### What to try
 
-Start with a low reach back and then tilt your wrist extremly and see what happens. Then gradully lessen the tilt of the wris throw again and see what happens.
+- try with low reach back, if throwing hyzer shots
+- start with a low reach back and then tilt your wrist extremly and see what happens. Then gradully lessen the tilt of the wris throw again and see what happens.
 
 ## Videos
 
