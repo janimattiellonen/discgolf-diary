@@ -34,7 +34,7 @@ If you need to throw downwards, then try to keep your back below your collar bon
 ### What to try
 
 - try with low reachback, if throwing hyzer shots
-- start with a low reachback and then tilt your wrist extremly and see what happens. Then gradully lessen the tilt of the wris throw again and see what happens.
+- start with a low reachback and then tilt your wrist extremly and see what happens. Then gradully lessen the tilt of the wrist, throw again and see what happens.
 
 ## Videos
 
