@@ -5,6 +5,18 @@
 
 [Lead card driving at EO2013](https://www.youtube.com/watch?v=GfjiaZ9DvXQ)
 
+
+## April 8th, 2020
+
+[Disc golf practise - April 8th, 2020](https://youtu.be/7qjsUZChNms)
+
+- rouding
+- dipping
+- head turned too much towards target
+- starting with too high reachback
+- leaning over too much
+
+
 ## December 18th, 2019
 
 [Indoor disc golf practise – 2019-12-18](https://www.youtube.com/watch?v=MJ5HgA6eh1k)
