@@ -1,9 +1,11 @@
 # Analyzing own throws
 
 
-## Video used as a base
+## Videos used as base
 
 [Lead card driving at EO2013](https://www.youtube.com/watch?v=GfjiaZ9DvXQ)
+
+[Mcbeth, Wysocki, Mcmahon, Kajiyama slow motion disc golf drives - Video 1](https://www.youtube.com/watch?v=AwYvav4xCR8)
 
 
 ## April 8th, 2020
