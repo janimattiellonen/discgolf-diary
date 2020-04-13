@@ -14,7 +14,8 @@
 
 - rouding
 - dipping
-- head turned too much towards target
+- head turned too much and too early towards the target
+- upper body turned too early, causes arm to lag behind the shot
 - starting with too high reachback
 - leaning over too much
 
