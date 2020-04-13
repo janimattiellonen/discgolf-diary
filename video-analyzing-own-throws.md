@@ -39,3 +39,15 @@
 - not in an athletic stance
 - throw starts with the throwing arm to high up
 - dipping
+
+## May 22nd, 2018
+
+[Discgolf practise](https://www.youtube.com/watch?v=27Y_hqAT2Ko)
+
+### Issues
+
+- not an athletic stance, standing up too much
+- legs too close to each others
+- head turned too much towards the target
+- off hand not close to the body
+
