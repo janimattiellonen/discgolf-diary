@@ -8,6 +8,13 @@
 [Mcbeth, Wysocki, Mcmahon, Kajiyama slow motion disc golf drives - Video 1](https://www.youtube.com/watch?v=AwYvav4xCR8)
 
 
+## May 13th, 2020
+
+
+Comparing with [Seppo Paju Vlog: Backhand Form Breakdown | S3E20](https://www.youtube.com/watch?v=6uuwa6c3D9o)
+
+[Disc golf practise - May 13th, 2020](https://www.youtube.com/watch?v=uCKRI_pcbDw)
+
 ## April 8th, 2020
 
 [Disc golf practise - April 8th, 2020](https://youtu.be/7qjsUZChNms)
