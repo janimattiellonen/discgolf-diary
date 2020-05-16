@@ -16,6 +16,7 @@ Comparing with [Seppo Paju Vlog: Backhand Form Breakdown | S3E20](https://www.yo
 
 - too much flailing hands just before throwing, calm it down(!)
 - Seppo leans back on his left foot before throwing (body weight on the left foot). I'm not doing the same, or the movement is very minimal. Looks more like that I start in the leftmost position, instead of reaching it before the throw. So I can't comment on the weight shift.
+- Seppo doesn't reach back that much
 - I'm throwing the disc at about the same height as Seppo. This is ok when throwing flat shots.
 - Seppo throws with both feet on about the same line (he mentions this on the video)
 
