@@ -1,5 +1,10 @@
 # Training log
 
+## May 26th, 2020
+
+### Duration: 1h 15min
+
+Mostly stand still shots with midranges. I had 5 understable drivers (Leopard3, Sidewinder) with me as well. I really noticed that when I let my planting foot plant before I started the driving, I was able to throw past the 100m line several times.
 
 ## May 6th, 2020
 
