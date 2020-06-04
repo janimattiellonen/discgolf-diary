@@ -1,5 +1,11 @@
 # Training log
 
+## June 4th, 2020
+
+### Duration, 45min
+
+Mostly drivers. Again, I noticed that when throwing understable nd lighter discs sucsh as Sidewinders and when I allow my plant foot to really plant before I drive, I can often reach 100m or a bit more. What is weird, is that I tedn to almost reach 100m with Discmania Evolutionsm which is a 12-speed disc. 
+
 ## May 26th, 2020
 
 ### Duration: 1h 15min
