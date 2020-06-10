@@ -1,5 +1,11 @@
 # Training log
 
+## June 10th, 2020
+
+### Duration, 1h 15min
+
+In addition to normal practise, I tried control shots using a garbage bin, which I placed on the soccer field and then tried to approach. As I only had drivers and the distance to the garbage bin was only about 80m, I had difficulties in hitting the close area. It may have worked better with mid ranges.
+
 ## June 4th, 2020
 
 ### Duration, 45min
