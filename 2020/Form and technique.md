@@ -7,6 +7,9 @@ Things that I believe in. Year 2020 update.
 - keep your reachback low (hyzer shots)
 - wide reachback
 
+## Hips
+
+During full reachback, your shoulders should be fully turned, with both elbows at maximum distance from target, BUT, your hips should be at most 45 degrees towards back. This allows your hips to engage and use your upper body as slingshot. If your hips were turned fully backwards, your hips would just turn along with your upper body.
 
 ## Nose angle
 
