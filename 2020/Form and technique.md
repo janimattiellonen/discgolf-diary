@@ -23,6 +23,12 @@ Nose down
 
 The disc is flying at the most aerodynamic angle relative to the direction the disc is flying.
 
+## Dipping
+
+Dipping occurs often, when you reach back high, above your shoulders.
+
+ANother reason might be that you lower your elbow during the throw.
+
 ### Common issues
 
 If you start with a high reachbach, then the path of the disc is aimed at the ground a few feet before you. This will force you to throw the disc with a nose up angle (or adjusting your angle, which will cause a dip in the swinging motion <- my comment). Start with a lower reachback to prevent dipping or nose up angles.
