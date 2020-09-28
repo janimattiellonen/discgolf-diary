@@ -25,7 +25,7 @@ Comparing with [Seppo Paju Vlog: Backhand Form Breakdown | S3E20](https://www.yo
 
 [Disc golf practise - April 8th, 2020](https://youtu.be/7qjsUZChNms)
 
-- rouding
+- rounding
 - dipping
 - head turned too much and too early towards the target
 - upper body turned too early, causes arm to lag behind the shot
