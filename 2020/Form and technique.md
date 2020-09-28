@@ -1,6 +1,6 @@
 # Form and technique
 
-Things that I believe in. Year 2020 update.
+Things that I believe in. Year 2020 update. Unless mentioned otherwise, all instructions assume a backhand throw.
 
 ## Reachback
 
@@ -27,7 +27,7 @@ The disc is flying at the most aerodynamic angle relative to the direction the d
 
 Dipping occurs often, when you reach back high, above your shoulders.
 
-ANother reason might be that you lower your elbow during the throw.
+Another reason might be that you lower your elbow during the throw.
 
 ### Common issues
 
