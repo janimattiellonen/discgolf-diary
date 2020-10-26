@@ -1,5 +1,11 @@
 # Training log
 
+## October 26th, 2020
+
+## Duration, 1h
+
+Took my camera with me. Threw only Roc3's and Valkyries. The biggest take today was that I saw myself turning way early, almost running backwards. Also, my back foot was pointing backwards, when it should be pointed in an 90° angle.
+
 ## June 10th, 2020
 
 ### Duration, 1h 15min
