@@ -2,19 +2,19 @@
 
 ## October 26th, 2020
 
-## Duration, 1h
+## Duration: 1h
 
 Took my camera with me. Threw only Roc3's and Valkyries. The biggest take today was that I saw myself turning way early, almost running backwards. Also, my back foot was pointing backwards, when it should be pointed in an 90° angle.
 
 ## June 10th, 2020
 
-### Duration, 1h 15min
+### Duration: 1h 15min
 
 In addition to normal practise, I tried control shots using a garbage bin, which I placed on the soccer field and then tried to approach. As I only had drivers and the distance to the garbage bin was only about 80m, I had difficulties in hitting the close area. It may have worked better with mid ranges.
 
 ## June 4th, 2020
 
-### Duration, 45min
+### Duration: 45min
 
 Mostly drivers. Again, I noticed that when throwing understable nd lighter discs sucsh as Sidewinders and when I allow my plant foot to really plant before I drive, I can often reach 100m or a bit more. What is weird, is that I tedn to almost reach 100m with Discmania Evolutionsm which is a 12-speed disc. 
 
