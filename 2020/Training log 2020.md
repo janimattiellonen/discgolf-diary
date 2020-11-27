@@ -1,5 +1,11 @@
 # Training log
 
+## November 27th, 2020
+
+## Duration 30min
+
+Actually, today I was on the practise field twice, but I'll mention the latter, 30 minute case. I went for a quick 30min practise round on my local soccer field. I took 6 mako3s. I practised slow run ups and it seemed to work very nicely. It felt good. I reach 94-95m a couple of times.
+
 ## October 26th, 2020
 
 ## Duration: 1h
