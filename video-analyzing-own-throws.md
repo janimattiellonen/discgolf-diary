@@ -14,6 +14,13 @@
 
 [Disc golf practise - December 3rd, 2020](https://www.youtube.com/watch?v=fkNIOTwZxz8)
 
+- both feet pointing too much backwards
+- too long second step (x-step)
+- shoulders are not 90 degrees towards the target, during full reachbak
+- dipping(!)
+- reachback happens too soon
+- basically running backwards
+
 ## May 13th, 2020
 
 [Disc golf practise - May 13th, 2020](https://www.youtube.com/watch?v=uCKRI_pcbDw)
