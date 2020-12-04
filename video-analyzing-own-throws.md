@@ -16,11 +16,13 @@
 
 - both feet pointing too much backwards
 - too long second step (x-step)
-- shoulders are not 90 degrees towards the target, during full reachbak
+- shoulders are not 90 degrees towards the target, during full reachback
 - throwing hand lags behind body
 - dipping(!)
 - reachback happens too soon
 - basically running backwards
+- taking my eyes off the target too early, actually I never really look at the target during my throw 
+  - some professional players turn their head away from the target very late or very little at all
 
 ## May 13th, 2020
 
