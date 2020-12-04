@@ -17,6 +17,7 @@
 - both feet pointing too much backwards
 - too long second step (x-step)
 - shoulders are not 90 degrees towards the target, during full reachbak
+- throwing hand lags behind body
 - dipping(!)
 - reachback happens too soon
 - basically running backwards
