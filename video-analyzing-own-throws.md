@@ -7,6 +7,12 @@
 
 [Mcbeth, Wysocki, Mcmahon, Kajiyama slow motion disc golf drives - Video 1](https://www.youtube.com/watch?v=AwYvav4xCR8)
 
+[What To Do With Your Left Arm (For More Power) - Ezra Aderhold - Disc Golf](https://www.youtube.com/watch?v=yieKVeYJ8DE)
+
+
+## December 3rd, 2020
+
+[Disc golf practise - December 3rd, 2020](https://www.youtube.com/watch?v=fkNIOTwZxz8)
 
 ## May 13th, 2020
 
