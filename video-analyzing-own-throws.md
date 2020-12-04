@@ -23,7 +23,8 @@
 - basically running backwards
 - taking my eyes off the target too early, actually I never really look at the target during my throw 
   - some professional players turn their head away from the target very late or very little at all
-
+- during some throws, the disc turned in vertical position before flattening out
+  - should try to keep the disc in the angle it should leave my hand
 ## May 13th, 2020
 
 [Disc golf practise - May 13th, 2020](https://www.youtube.com/watch?v=uCKRI_pcbDw)
